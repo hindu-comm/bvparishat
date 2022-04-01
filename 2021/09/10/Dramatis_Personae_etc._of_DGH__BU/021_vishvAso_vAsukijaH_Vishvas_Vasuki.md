@@ -1,0 +1,31 @@
++++
+title = "021 विश्वासो वासुकिजः (Vishvas Vasuki)"
+
++++
+[[विश्वासो वासुकिजः (Vishvas Vasuki)	2021-09-12, 21:24:34 [Source](https://groups.google.com/g/bvparishat/c/BUQ9h9BnJ_4)]]
+
+
+
+(cc meta-indology)
+
+  
+
+
+
+
+
+> You received this message because you are subscribed to a topic in the > Google Groups "भारतीयविद्वत्परिषत्" group.  
+> To unsubscribe from this topic, visit > <https://groups.google.com/d/topic/bvparishat/BUQ9h9BnJ_4/unsubscribe>.  
+> To unsubscribe from this group and all its topics, send an email to > [bvparishat+...@googlegroups.com]().  
+> To view this discussion on the web visit > [https://groups.google.com/d/msgid/bvparishat/CAN47gm45PXwGY9bnAiM9v7DgTd%2B8TyJPDEpY1njk88gDT5txkA%40mail.gmail.com](https://groups.google.com/d/msgid/bvparishat/CAN47gm45PXwGY9bnAiM9v7DgTd%2B8TyJPDEpY1njk88gDT5txkA%40mail.gmail.com?utm_medium=email&utm_source=footer).  
+
+  
+
+  
+
+--  
+
+--  
+Vishvas /विश्वासः  
+  
+

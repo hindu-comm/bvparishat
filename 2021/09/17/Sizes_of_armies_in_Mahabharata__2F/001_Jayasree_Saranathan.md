@@ -1,0 +1,40 @@
++++
+title = "001 Jayasree Saranathan"
+
++++
+[[Jayasree Saranathan	2021-09-17, 12:06:01 [Source](https://groups.google.com/g/bvparishat/c/2FJQUEbnXKc)]]
+
+
+
+Dear Sri. Pradyuma Achar,
+
+  
+
+I wrote a piece on this.
+
+May be you would like to read it.
+
+  
+
+<https://jayasreesaranathan.blogspot.com/2021/05/did-lakhs-of-people-belonging-to-18.html>  
+
+  
+
+Regards,
+
+Jayasree
+
+  
+
+  
+  
+
+
+
+
+
+> --  
+> You received this message because you are subscribed to the Google > Groups "भारतीयविद्वत्परिषत्" group.  
+> To unsubscribe from this group and stop receiving emails from it, send > an email to [bvparishat+...@googlegroups.com]().  
+> To view this discussion on the web visit > [https://groups.google.com/d/msgid/bvparishat/ad614489-2e5b-4d76-a1dd-207181a62fe7n%40googlegroups.com](https://groups.google.com/d/msgid/bvparishat/ad614489-2e5b-4d76-a1dd-207181a62fe7n%40googlegroups.com?utm_medium=email&utm_source=footer).  
+

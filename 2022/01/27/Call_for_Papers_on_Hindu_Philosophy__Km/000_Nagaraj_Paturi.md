@@ -1,0 +1,52 @@
++++
+title = "000 Nagaraj Paturi"
+
++++
+[[Nagaraj Paturi	2022-01-27, 08:04:44 [Source](https://groups.google.com/g/bvparishat/c/Kmzk0nbjsVw)]]
+
+
+
+Was shared on Indology list:  
+
+  
+
+Dear Colleagues,
+
+  
+
+The American Academy of Religion is now accepting proposals for this year's annual meeting, which will be held in Denver, Colorado, November 19-22. I wanted to highlight the CFP (below) for the Hindu Philosophy unit. Proposals should be submitted online through the[PAPERS](https://papers.aarweb.org/content/welcome)system; the deadline is 5pm (EST) on Tuesday, March 1. I hope some of you will consider submitting.
+
+  
+
+Best wishes,
+
+Michael
+
+  
+
+Michael S. Allen, unit co-chair (with Parimal G. Patil)
+
+Assistant Professor
+
+Department of Religious Studies
+
+University of Virginia
+
+  
+
+  
+
+The Hindu Philosophy unit of the American Academy of Religion is pleased to invite proposals for two sessions to be held at this year’s Annual Meeting:
+
+  
+
+** 1. Philosophical Roundtable.**This format brings together several participants to discuss either a single argument or a closely related series of arguments from a single author. This year we will focus on Kumārila’s arguments for*svataḥ-prāmāṇya,*or the “intrinsic validity” of cognitions, at*Śloka-vārttika*II.33-61. The goal is not to have traditional presentations but to create a space for lively and rigorous discussion. In lieu of traditional paper proposals, therefore, we instead invite prospective participants to write a short philosophical analysis either of the section as a whole or a single argument from the section. One might, for example, criticize Kumārila’s argument, or extend it, or defend it against further objections, or note something surprising in the argument, or simply assess its strengths and weaknesses.
+
+  
+
+** 2. Traditional Papers Session.**For this session we are looking for individual paper proposals (rather than full panel proposals). We are especially interested in papers on yogic perception or the philosophy of perception more broadly, but we are also open to a wide range of other topics related to Hindu philosophy. Possible topics include but are by no means limited to: Philosophy of Language, Philosophy of Materiality, Discourses of Ultimate Reality, Philosophy and Pedagogy, Lived Philosophy, “Philosophy” as a Category, Stock Examples, Philosophy and Literature, and Philosophy in Vernacular Texts.
+
+  
+
+**3. Co-sponsored Session on Sikh Philosophy.**We also seek papers for a session on Sikh philosophy, with an emphasis on exchanges and influences between Sikh and non-Sikh traditions, for a co-sponsored session with the Sikh Studies unit.
+

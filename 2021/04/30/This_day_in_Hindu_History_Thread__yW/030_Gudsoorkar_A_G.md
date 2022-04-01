@@ -1,0 +1,32 @@
++++
+title = "030 Gudsoorkar A G"
+
++++
+[[Gudsoorkar A G	2021-07-15, 16:20:59 [Source](https://groups.google.com/g/bvparishat/c/yWjl2WcdCOQ)]]
+
+
+
+Thank you very much Shri Vishwasji for providing such important and valuable inf regularly.
+
+  
+
+May we know the source and  about the S.No. like #२९२ ? Thanks again.
+
+-Ashok G.  
+  
+
+Sent from my iPhone
+
+
+
+
+
+> 
+> > You received this message because you are subscribed to the Google > Groups "भारतीयविद्वत्परिषत्" group.  
+> > 
+
+> 
+> > To unsubscribe from this group and stop receiving emails from it, send > an email to [bvparishat+...@googlegroups.com]().  
+> To view this discussion on the web visit > [https://groups.google.com/d/msgid/bvparishat/CAFY6qgFhW756eSWhLcDd%3DWfBbVSXWmpP26p4vt7sUmMucY93nQ%40mail.gmail.com](https://groups.google.com/d/msgid/bvparishat/CAFY6qgFhW756eSWhLcDd%3DWfBbVSXWmpP26p4vt7sUmMucY93nQ%40mail.gmail.com?utm_medium=email&utm_source=footer).  
+> > 
+

@@ -1,0 +1,55 @@
++++
+title = "000 Nagaraj Paturi"
+
++++
+[[Nagaraj Paturi	2021-09-29, 13:26:40 [Source](https://groups.google.com/g/bvparishat/c/MysRnol4hg4)]]
+
+
+
+Was shared on Indology list :
+
+  
+
+Dear colleagues and friends,
+
+  
+
+all best wishes from autumnal Bonn. This is a brief reminder that our**digital (zoom) conference**on 'Embodied Dependencies and Freedoms: Artistic Communities and Patronage in Asia’ will take place in two weeks time, on**14th and 15th October 2021**. I attach the programme once again for your information.
+
+  
+
+You can still**register**for one week,**until Thursday, 7th October 2021**, by simply sending a one-line email to Jan Hoerber ([eve...@dependency.uni-bonn.de]()). The access links for both days will then be sent to you. Participation in the conference is free of charge and open to all registered persons.
+
+  
+
+We are very much looking forward to ’seeing’ you on the conference. Please circulate the information further.
+
+With all best wishes,
+
+  
+
+Julia Hegewald.
+
+  
+
+  
+
+  
+
+  
+
+  
+
+  
+  
+
+Prof. Dr. Julia A. B. Hegewald  
+Professor of Oriental Art History  
+Head of Department  
+University of Bonn  
+Institute of Oriental and AsianStudies (IOA)  
+Department of Asian and IslamicArt History  
+Adenauerallee 10  
+53113 Bonn  
+Germany  
+

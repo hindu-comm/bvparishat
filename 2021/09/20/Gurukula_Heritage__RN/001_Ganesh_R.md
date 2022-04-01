@@ -1,0 +1,35 @@
++++
+title = "001 Ganesh R"
+
++++
+[[Ganesh R	2021-09-20, 09:08:42 [Source](https://groups.google.com/g/bvparishat/c/RNhAKRId9GY)]]
+
+
+
+Dear and respected Prof. R. N. I. Sir,
+
+  
+
+Thanks a lot for this talk. Just now I completely listened to it and it makes lots of sense. Your observations are truly illuminating and objective. Eager to hear more from you.
+
+  
+
+  
+
+With best regards
+
+  
+
+Ganesh
+
+  
+
+
+
+
+
+> --  
+> You received this message because you are subscribed to the Google > Groups "भारतीयविद्वत्परिषत्" group.  
+> To unsubscribe from this group and stop receiving emails from it, send > an email to [bvparishat+...@googlegroups.com]().  
+> To view this discussion on the web visit > [https://groups.google.com/d/msgid/bvparishat/CAK%2BHosNo%3Dp2P2KFexPza41tMC-cvPFBDo0LEkDRg1pjDYKnjGw%40mail.gmail.com](https://groups.google.com/d/msgid/bvparishat/CAK%2BHosNo%3Dp2P2KFexPza41tMC-cvPFBDo0LEkDRg1pjDYKnjGw%40mail.gmail.com?utm_medium=email&utm_source=footer).  
+

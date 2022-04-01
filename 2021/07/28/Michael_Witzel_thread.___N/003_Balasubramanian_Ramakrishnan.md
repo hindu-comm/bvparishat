@@ -1,0 +1,112 @@
++++
+title = "003 Balasubramanian Ramakrishnan"
+
++++
+[[Balasubramanian Ramakrishnan	2021-07-29, 08:27:51 [Source](https://groups.google.com/g/bvparishat/c/_N2Tdp7X-vk)]]
+
+
+
+On Wed, Jul 28, 2021 at 12:35 PM Shrivathsa B \<[shrivath...@gmail.com]()\> wrote:  
+
+> 
+> > "Partly because of frenzied antipathy by some Hindus towards AIT, and > partly because of his inevitable conditioning - he got pushed into the > anti-Hindu political activism business during the first CA textbook > battle." >
+> 
+> >   
+> > 
+> > 
+> > Oh "frenzied antipathy" against the obnoxious AIT shouldn't be there > because neo-colonial masters of some neo-colonial slaves will be > upset. They will descend into anti-hindu activism. "Hey, eeydeeyoTTs > he was good to some V1s (brahmins) after all!" >
+> 
+> > 
+> >   
+> > 
+> > 
+> > I wish and pray that all colonial slaves become intellectually > independent. Too many slaves lurking around. This doesn't bode well > neither for this group nor for the nation. >
+> 
+> > 
+> >   
+> > 
+> > 
+> > One wishes that the fact that the worthy got a thorough whacking from > a computer science journal for throwing the weight of his colonial > hindside around also be recorded in this inauspicious thread for > posterity. And no. The ones who he wanted to discredit were > mathematicians and didn't know or care about the AIT. They indulged in > the cardinal sin of suggesting that the Harappan "heiroglyphs" > actually constitute a language (through sound mathematical reasoning). > Something that went against the bully's pet theory. >
+> 
+> > 
+
+  
+
+Dear Shrivatsa-ji
+
+  
+
+Which paper are you referring to above?
+
+  
+
+Thanks
+
+  
+
+Ramakrishnan
+
+  
+
+> 
+> > 
+> > 
+> > 
+> > Colonial slave mindset hasn't at all gone away. One is disgusted to > see (not so) veiled apologetics for out and out colonial intellectual > bullies. >
+> 
+> > 
+> >   
+> > 
+> > 
+> > Bhagavaan save us from intellectual slaves. >
+> 
+> > 
+> >   
+> > 
+> > 
+> >   
+> > 
+> > 
+> >   
+> > 
+> > 
+> > On Wed, 28 Jul 2021, 18:22 विश्वासो वासुकिजः (Vishvas Vasuki), > \<[vishvas...@gmail.com]()\> wrote:  
+> > 
+> > > 
+> > > > 
+> > > > In this thread, I intend to collect bits about Michael Witzel's > > scholarship and past activism,as I stumble upon them.
+> > > > 
+> > > > 
+> > > >   
+> > > > 
+> > > > 
+> > > > 
+> > > > My gross impression, gathered from others, is that he is a generally > > worthy scholar who was initially more pro-Hindu than his American > > peers and sympathetic to worthy v1 students at his institution. > > Partly because of frenzied antipathy by some Hindus towards AIT, and > > partly because of his inevitable conditioning - he got pushed into > > the anti-Hindu political activism business during the first CA > > textbook battle. > > > > 
+> > > >   
+> > > > 
+> > > > 
+> > > > 
+> > > > Here is a very nice article by him about his memories of a Nepal > > which may have sadly passed - > > <https://sites.fas.harvard.edu/~witzel/Swadharma.htm> > > > > 
+> > > >   
+> > > > 
+> > > > 
+> > > >   
+> > > > 
+> > > > --  
+> > > > 
+> > > > --  
+> > Vishvas /विश्वासः  
+> >   
+> > > > 
+> > > > 
+> > > > --  
+> > You received this message because you are subscribed to the Google > > Groups "भारतीयविद्वत्परिषत्" group.  
+> > To unsubscribe from this group and stop receiving emails from it, > > send an email to [bvparishat+...@googlegroups.com]().  
+> > To view this discussion on the web visit > > [https://groups.google.com/d/msgid/bvparishat/CAFY6qgG43Rk_Lpb9MVYUYX_vOSn1raspkr7aiLkc_27nMdxBNw%40mail.gmail.com](https://groups.google.com/d/msgid/bvparishat/CAFY6qgG43Rk_Lpb9MVYUYX_vOSn1raspkr7aiLkc_27nMdxBNw%40mail.gmail.com?utm_medium=email&utm_source=footer).  
+> > 
+> > --  
+> You received this message because you are subscribed to the Google > Groups "भारतीयविद्वत्परिषत्" group.  
+> To unsubscribe from this group and stop receiving emails from it, send > an email to [bvparishat+...@googlegroups.com]().  
+
+> To view this discussion on the web visit > [https://groups.google.com/d/msgid/bvparishat/CAL27Zu5n%3D2AaWbf2T3oM7AgXe88G7zy%2BQCuz36M2Vjo33YUMPA%40mail.gmail.com](https://groups.google.com/d/msgid/bvparishat/CAL27Zu5n%3D2AaWbf2T3oM7AgXe88G7zy%2BQCuz36M2Vjo33YUMPA%40mail.gmail.com?utm_medium=email&utm_source=footer).  
+

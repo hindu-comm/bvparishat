@@ -1,0 +1,43 @@
++++
+title = "000 Acharya Veeranarayana Pandurangi"
+
++++
+[[Acharya Veeranarayana Pandurangi	2021-08-12, 19:17:17 [Source](https://groups.google.com/g/bvparishat/c/xPkQGMLP_EY)]]
+
+
+
+Short term course on Muktivada of Gadadhara Bhattacharya
+
+**Course will start on 20.8.2021**
+
+  
+Weekly Two classes on Friday and Sunday from 4.30 to 6.00 PM IST (course runs for around two months or text is completely read)
+
+  
+Medium of Instruction: English and Samskrit  
+Participants: Participants with prior acquaintance of Philosophical Samskrit will be preferred. However it is not for exclusion of others.
+
+  
+Course instructor: Acharya Veeranarayana Pandurangi  
+Dean of Vedanta Faculty, Karnataka Samskrit University, Bengaluru
+
+  
+Course Fee: Rs 3000 only or Rs 10000 in the case of people from other nations.
+
+About Muktivada  
+Muktivada of Gadadhara Bhattacharya is an independent work that discusses the nature of liberation according to Nyaya school. Gadadhara Bhattacharya is well known for his logical vigour and clarity of analysis. Thus it is really interesting to see how the rigorous methods are employed in a subject like Liberation.
+
+  
+<http://forms.gle/mpNv6b7zWnxdi3CPA>
+
+  
+
+Contact  
+Dr. Shruti H K  
+[+919482065842](tel:+919482065842)  
+[shruth...@gmail.com]()
+
+  
+
+Details can be found here
+

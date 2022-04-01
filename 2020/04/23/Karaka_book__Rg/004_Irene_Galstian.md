@@ -1,0 +1,106 @@
++++
+title = "004 Irene Galstian"
+
++++
+[[Irene Galstian	2020-04-24, 14:01:49 [Source](https://groups.google.com/g/bvparishat/c/Rgqrz5bg5Rc)]]
+
+
+
+The link above is to Chakravarti' book. I haven't yet come across a digital version of Barthakuria's work.
+
+  
+  
+On Friday, April 24, 2020 at 3:42:13 AM UTC+1, vishal wrote:
+
+> Sumithraji, the physical book on that site is out of print. >
+> 
+> > Dhanyavaad Harshadaji for pointing me to the ecopy ! >
+> 
+> > 
+> >   
+> > 
+> > 
+> > Vishal >
+> 
+
+> 
+> >   
+>   
+> On Thursday, April 23, 2020, Harshada Joshi \<harshad...@gmail.com\> > wrote:  
+> > 
+
+> 
+> > > 
+> > > > Here is the link for e-copy of this book: > > > > 
+> > > >   
+> > > > 
+> > > > 
+> > > > <https://archive.org/details/ThePhilosophyOfSanskritGrammer/page/n9/mode/2up>  
+> > > > 
+> > > > 
+> > > >   
+> > > > 
+> > > > 
+> > > >   
+> > 
+
+> 
+> > > 
+> > > > 
+> > > > On Thu, Apr 23, 2020, 9:41 PM vishal jaiswal > > \<tovisha...@gmail.com\> wrote:  
+> > > > 
+> > > > 
+> > 
+
+> 
+> > > 
+> > > > > Namaste, this book is shown as out of print on most sites that I > > > tried. Is it possible to find an ebook version ? Or the printed > > > book ? > > > > > > 
+> > > > > >   
+> > > > > > 
+> > > > > > The Philosophy of Sanskrit Grammar (A Critical Study of Karaka)  
+> > > > > > 
+> > > > > > 
+> > > > > > 
+> > > > > > By > > > > > > 
+> > > > > > 
+> > > > > > Dr. Apurba Chandra Barthakuria  
+> > > > > > 
+> > > > > > 
+> > > > > > 1997 > > > > > > 
+> > > > > > 
+> > > > > > Publisher -Punthi Pustak > > > > > > 
+> > > > > > 
+> > > > > >   
+> > > > > > 
+> > > > > > 
+> > > > > > Thanks, > > > > > > 
+> > > > > > 
+> > > > > > Vishal > > > > > > 
+> > > > > > --  
+> > > You received this message because you are subscribed to the Google > > > Groups "भारतीयविद्वत्परिषत्" group.  
+> > > > 
+> > 
+
+> 
+> > > 
+> > > > > To unsubscribe from this group and stop receiving emails from it, > > > send an email to bvpar...@googlegroups.com. > > > > 
+> > 
+
+> 
+> > > 
+> > > > >   
+> > > To view this discussion on the web visit > > > [https://groups.google.com/d/msgid/bvparishat/CAKTyUKJ3TtEYYK6_RXJ4X7UDOvberCwRgh9vC9RMuAGRzCqKpA%40mail.gmail.com](https://groups.google.com/d/msgid/bvparishat/CAKTyUKJ3TtEYYK6_RXJ4X7UDOvberCwRgh9vC9RMuAGRzCqKpA%40mail.gmail.com?utm_medium=email&utm_source=footer).  
+> > > > 
+> > 
+
+> 
+> > > --  
+> > You received this message because you are subscribed to the Google > > Groups "भारतीयविद्वत्परिषत्" group.  
+> > 
+
+> 
+> > > To unsubscribe from this group and stop receiving emails from it, > > send an email to bvpar...@googlegroups.com. >
+> 
+
+
+

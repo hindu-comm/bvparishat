@@ -1,0 +1,43 @@
++++
+title = "001 Gauri Mahulikar"
+
++++
+[[Gauri Mahulikar	2021-06-19, 16:43:56 [Source](https://groups.google.com/g/bvparishat/c/BhljHBMX32Q)]]
+
+
+
+Hari Om!
+
+It's a humongous task achieved by Patrick Olivelle.
+
+Many congratulations and thanks for making the texts available for Indologists
+
+  
+
+warm regards
+
+Prof. Gauri Mahulikar
+
+Dean of Faculty, Chinmaya University
+
+Veliyanad, Ernakulam, 682313
+
+Former Prof & Head, Sanskrit Dept
+
+Mumbai University  
+
+  
+
+  
+
+  
+
+
+
+
+
+> --  
+> You received this message because you are subscribed to the Google > Groups "भारतीयविद्वत्परिषत्" group.  
+> To unsubscribe from this group and stop receiving emails from it, send > an email to [bvparishat+...@googlegroups.com]().  
+> To view this discussion on the web visit > [https://groups.google.com/d/msgid/bvparishat/b8ec5740-b862-4ffd-bb08-d42621bd8b24n%40googlegroups.com](https://groups.google.com/d/msgid/bvparishat/b8ec5740-b862-4ffd-bb08-d42621bd8b24n%40googlegroups.com?utm_medium=email&utm_source=footer).  
+

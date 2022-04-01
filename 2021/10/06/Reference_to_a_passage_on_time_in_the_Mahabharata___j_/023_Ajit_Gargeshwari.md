@@ -1,0 +1,31 @@
++++
+title = "023 Ajit Gargeshwari"
+
++++
+[[Ajit Gargeshwari	2021-10-07, 20:12:44 [Source](https://groups.google.com/g/bvparishat/c/j_bAPM9F5Pk)]]
+
+
+
+Thank you Prof Paturi for answeringmy questions. Prof. Mehandale M.A. on Constitution achievementsand Limitations of the Critical edition of the Mahabharataalso give the limitations and scope of critical edition . Critical edition aims to reconstruct a text on what could possibly have been the text or at least arrivate at the vulgate. It may or may no coincide with traditionalinterpretationor for the problems of philosophy and moksha which is of concern to a traditionalschool of thought
+
+Regards  
+Ajit Gargeshwari
+
+Web site Visit <https://archive.org/details/@sri_gargeshwari_digital_foundation>
+
+<https://archive.org/details/karnatakasamskritauniversity>
+
+न जायते म्रियते वा कदाचिन्नायं भूत्वा भविता वा न भूयः।  
+अजो नित्यः शाश्वतोऽयं पुराणो न हन्यते हन्यमाने शरीरे।।2.20।।
+
+  
+
+
+
+
+
+> You received this message because you are subscribed to a topic in the > Google Groups "भारतीयविद्वत्परिषत्" group.  
+> To unsubscribe from this topic, visit > <https://groups.google.com/d/topic/bvparishat/j_bAPM9F5Pk/unsubscribe>.  
+> To unsubscribe from this group and all its topics, send an email to > [bvparishat+...@googlegroups.com]().  
+> To view this discussion on the web visit > [https://groups.google.com/d/msgid/bvparishat/CAJGj9eb2%3D%3DFGettWvvS9tF7wLPAwE3ivm5O2v3OxAmjUZaskgw%40mail.gmail.com](https://groups.google.com/d/msgid/bvparishat/CAJGj9eb2%3D%3DFGettWvvS9tF7wLPAwE3ivm5O2v3OxAmjUZaskgw%40mail.gmail.com?utm_medium=email&utm_source=footer).  
+
