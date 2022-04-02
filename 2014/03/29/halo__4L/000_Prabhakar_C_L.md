@@ -1,0 +1,34 @@
++++
+title = "000 Prabhakar C L"
+
++++
+[[Prabhakar C L	2014-03-29, 14:57:23 [Source](https://groups.google.com/g/bvparishat/c/4LOlO_PHHQY)]]
+
+
+
+how are you
+
+kindly send a paper onthe topic for our vedaganga and present a paper on 20th April too.
+
+best wishes.
+
+prabhakar
+
+
+
+====================================================================  
+Dr. C. L. Prabhakar  
+Director, Vedaadhyayanana Kendra, Bangalore - 78  
+President, World Association for Vedic Studies (WAVES), USA,  
+India Branch, Bangalore Chapter  
+Professor of Vedas, Hindu University of America, Orlando, FL  
+India Ph No: 91-80-26592489  
+US Ph No: [(614)717-6728](tel:(614)%20717-6728)  
+email: [clpra...@yahoo.com]()  
+website: <http://nvak.tripod.com>  
+\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*  
+"Oh Agni, give us strength to fight all our misdoings and lead us in  
+the righteous path. We offer you salutations".  
+-RgVeda  
+====================================================================
+

@@ -1,0 +1,40 @@
++++
+title = "002 rama"
+
++++
+[[rama	2013-10-15, 20:25:35 [Source](https://groups.google.com/g/bvparishat/c/BeC7M_keqSk)]]
+
+
+
+संहितामधिकृत्योक्तं समासे न दृष्टमपि न दोषाय ।
+
+
+
+रामानुजः  
+
+
+
+
+
+> --  
+> निराशीर्निर्ममो भूत्वा युध्यस्व विगतज्वरः।। (भ.गी.)  
+> ---  
+> You received this message because you are subscribed to the Google > Groups "भारतीयविद्वत्परिषत्" group.  
+> To unsubscribe from this group and stop receiving emails from it, send > an email to [bvparishat+...@googlegroups.com]().  
+> To post to this group, send email to [bvpar...@googlegroups.com]().  
+> Visit this group at <http://groups.google.com/group/bvparishat>.  
+> For more options, visit <https://groups.google.com/groups/opt_out>.
+
+  
+
+
+  
+-------------------------------------------------------------------------------------------------------------------------------  
+This e-mail is for the sole use of the intended recipient(s) and may  
+contain confidential and privileged information. If you are not the  
+intended recipient, please contact the sender by reply e-mail and destroy  
+all copies and the original message. Any unauthorized review, use,  
+disclosure, dissemination, forwarding, printing or copying of this email  
+is strictly prohibited and appropriate legal action will be taken.  
+-------------------------------------------------------------------------------------------------------------------------------
+

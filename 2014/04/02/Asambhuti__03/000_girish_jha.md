@@ -1,0 +1,51 @@
++++
+title = "000 girish jha"
+
++++
+[[girish jha	2014-04-02, 23:33:07 [Source](https://groups.google.com/g/bvparishat/c/03nDkq9pM0g)]]
+
+
+
+Dear colleagues,
+
+I already read the sankarabhasya on the isavasyopanisad and its English translation by swami Gambhirananda \[Ramakrisna Mission\].My problem is that what the following mantra means :
+
+Andham tamah pravisanti ye asambhutim upasate.
+
+Tato bhuya iva te tamoya u sambhutyam ratah //ISA-12//
+
+Swami ji translates the view of Sankara and writes :
+
+Those who worship the unmanifested(prakriti) enter into blinding
+darkness; but those who are devoted to the manifested (hiranyagarbha)
+enter into greater darkness.
+
+Here the problem arises :
+
+1,what is the import of the worship of asambhuti-avyakrita \[ unmanifest\] prakriti and sambhuti- karyabrahma\[ hiranyagarbha \].Hiranyagarbha is mentioned in hiranygarbha Sukta too where it means
+a huge form of paramatma.In this way hiranyagarbha has two
+meanings what should be taken as authentic.
+
+2.what is the system of said worships?In haste I could not use diacritics.
+
+Regards,
+
+Sincerely
+
+Girish K. Jha
+
+Professor,
+
+Dept of Sanskrit
+
+Patna University
+
+
+
+.
+
+
+
+
+
+

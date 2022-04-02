@@ -1,0 +1,40 @@
++++
+title = "001 shankara"
+
++++
+[[shankara	2014-03-09, 21:02:42 [Source](https://groups.google.com/g/bvparishat/c/8oFNzLU41os)]]
+
+
+
+Namaste!  
+  
+I think it should **येषां **in the beginning of 3rd line too.
+
+
+
+regards  
+shankara  
+
+------------------------------------------------------------------------
+
+**From:** Anil Narayanan \<[anil...@yahoo.com]()\>  
+**To:** "[bvpar...@googlegroups.com]()" \<[bvpar...@googlegroups.com]()\>  
+**Sent:** Sunday, 9 March 2014 6:29 PM  
+**Subject:** {भारतीयविद्वत्परिषत्} thanks  
+
+  
+
+
+
+--  
+निराशीर्निर्ममो भूत्वा युध्यस्व विगतज्वरः।। (भ.गी.)  
+---  
+You received this message because you are subscribed to the Google Groups "भारतीयविद्वत्परिषत्" group.  
+To unsubscribe from this group and stop receiving emails from it, send an email to [bvparishat+...@googlegroups.com]().  
+To post to this group, send email to [bvpar...@googlegroups.com]().  
+Visit this group at <http://groups.google.com/group/bvparishat>.  
+For more options, visit <https://groups.google.com/d/optout>.  
+
+  
+  
+

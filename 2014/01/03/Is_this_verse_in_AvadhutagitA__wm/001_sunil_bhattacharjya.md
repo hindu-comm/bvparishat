@@ -1,0 +1,36 @@
++++
+title = "001 sunil bhattacharjya"
+
++++
+[[sunil bhattacharjya	2014-01-04, 10:54:28 [Source](https://groups.google.com/g/bvparishat/c/wmIaXa4p44w)]]
+
+
+
+Namaste,  
+  
+
+Thie verse may be towards the end of the 8th chapter, which is supposed to have 28 verses but the copy I have, has only 10 verses in the 8th chapter.  
+  
+
+Regards,  
+
+Sunil KB  
+
+  
+  
+
+
+
+
+
+> --  
+> निराशीर्निर्ममो भूत्वा युध्यस्व विगतज्वरः।। (भ.गी.)  
+> ---  
+> You received this message because you are subscribed to the Google > Groups "भारतीयविद्वत्परिषत्" group.  
+> To unsubscribe from this group and stop receiving emails from it, send > an email to [bvparishat+...@googlegroups.com]().  
+> To post to this group, send email to [bvpar...@googlegroups.com]().  
+> Visit this group at <http://groups.google.com/group/bvparishat>.  
+> For more options, visit <https://groups.google.com/groups/opt_out>.  
+
+  
+

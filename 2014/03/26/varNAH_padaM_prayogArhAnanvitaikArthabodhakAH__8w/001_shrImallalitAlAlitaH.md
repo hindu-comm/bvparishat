@@ -1,0 +1,39 @@
++++
+title = "001 श्रीमल्ललितालालितः"
+
++++
+[[श्रीमल्ललितालालितः	2014-03-26, 14:44:43 [Source](https://groups.google.com/g/bvparishat/c/8wOrR3Aonws)]]
+
+
+
+If this is a context of defining पदम्(word) then  
+
+letter are word which denote a single meaning(entity) which(meaning) can be used(independent of other words/sentence) and is not related (to other meaning, i.e. kArya or yogyetara).  
+
+The only error I could find in yours is that you translated अननन्वित as joined or related.  
+
+Rest is on the scholars who have command on shabda-shAstra and English, both.  
+
+  
+
+**श्रीमल्ललितालालितः  
+**[www.lalitaalaalitah.com](http://www.lalitaalaalitah.com)
+
+  
+  
+
+
+
+
+
+> --  
+> निराशीर्निर्ममो भूत्वा युध्यस्व विगतज्वरः।। (भ.गी.)  
+> ---  
+> You received this message because you are subscribed to the Google > Groups "भारतीयविद्वत्परिषत्" group.  
+> To unsubscribe from this group and stop receiving emails from it, send > an email to [bvparishat+...@googlegroups.com]().  
+> To post to this group, send email to [bvpar...@googlegroups.com]().  
+> Visit this group at <http://groups.google.com/group/bvparishat>.  
+> For more options, visit <https://groups.google.com/d/optout>.  
+
+  
+

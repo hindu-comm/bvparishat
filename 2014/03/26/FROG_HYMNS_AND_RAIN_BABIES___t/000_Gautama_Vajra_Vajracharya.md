@@ -1,0 +1,22 @@
++++
+title = "000 Gautama Vajra Vajracharya"
+
++++
+[[Gautama Vajra Vajracharya	2014-03-26, 22:35:42 [Source](https://groups.google.com/g/bvparishat/c/_tvq5Gzp6Dw)]]
+
+
+
+  
+Dear Friends,  
+  
+Many years ago I wrote an article “The Adaptation of  
+Monsoonal Culture by Rgvedic Aryans: A Further Study of the Frog Hymn”, Electronic Journal of Vedic Studies 3 (May  
+1997), pp. 1-19. Realizing that the components of Monsoon culture are hidden  
+not only in Vedic literature but also in the artistic expressions of South Asia,  
+I continued working on the subject in more detail. Now I have a monograph, Frog Hymns and Rain Babies: Monsoon Culture  
+and the Art of Ancient South Asia (Mumbai: The Marg Foundation, 2013).  
+  
+I look forward to your feedback.  
+Gautama  
+Vajracharya  
+

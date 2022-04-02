@@ -1,0 +1,42 @@
++++
+title = "000 Jay Soni"
+
++++
+[[Jay Soni	2013-10-02, 13:22:52 [Source](https://groups.google.com/g/bvparishat/c/5ElAk30m3xA)]]
+
+
+
+With thanks to Professor Hari Dutt Sharma and Dr Sthaneshwar Timalsina I am able to send you the next issue of Vi-duu. I hope you will enjoy it again.
+
+  
+
+It was ready on 1st October but am able to send it only now. The members of the IASS have already seen it, so apologies for the duplication.
+
+  
+
+With best wishes,
+
+  
+
+Jay Soni
+
+  
+
+  
+
+------------------------------
+
+Jayandra Soni, Ph.Dd. (BHU and McMaster)
+
+  
+
+  
+
+Secretary General, International Association of Sanskrit Studies
+
+<http://www.sanskritassociation.org/>
+
+Email: [jayand...@sanskritassociation.org]()
+
+Cc: [so...@staff.uni-marburg.de]()
+

@@ -1,0 +1,37 @@
++++
+title = "001 sunil bhattacharjya"
+
++++
+[[sunil bhattacharjya	2014-03-31, 09:43:25 [Source](https://groups.google.com/g/bvparishat/c/8gl3VZ9XkLA)]]
+
+
+
+Dear Joshiji,  
+  
+
+I am sure many of us, of course including me, would be interested in your paper on demystifying Sphota (published by BORI). Would you mind sending a copy to me also either directly or through BVP.  
+  
+
+Regards,  
+
+Sunil KB  
+
+  
+  
+
+
+
+
+
+>   
+> --  
+> निराशीर्निर्ममो भूत्वा युध्यस्व विगतज्वरः।। (भ.गी.)  
+> ---  
+> You received this message because you are subscribed to the Google > Groups "भारतीयविद्वत्परिषत्" group.  
+> To unsubscribe from this group and stop receiving emails from it, send > an email to [bvparishat+...@googlegroups.com]().  
+> To post to this group, send email to [bvpar...@googlegroups.com]().  
+> Visit this group at <http://groups.google.com/group/bvparishat>.  
+> For more options, visit <https://groups.google.com/d/optout>.  
+
+  
+

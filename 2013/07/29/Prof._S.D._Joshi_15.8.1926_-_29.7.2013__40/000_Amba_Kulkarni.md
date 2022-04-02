@@ -1,0 +1,49 @@
++++
+title = "000 Amba Kulkarni"
+
++++
+[[Amba Kulkarni	2013-07-29, 20:47:49 [Source](https://groups.google.com/g/bvparishat/c/40GcgWE2-mA)]]
+
+
+
+It is Prof. Joshi's works through which I was introduced to the  
+Mahabhashya, and also to the whole Paninian tradition, through the  
+printed material.  
+  
+The first work which I read was the samarth-aahnika. He made all the  
+arguments on asamartha compound and gamakatva  
+easy by providing a summary in a tabular form.  
+  
+When we decided to hold the 3rd symposium on Sanskrit Computational  
+Linguistics at Hyderabad, I could dare to invite him as a keynote  
+speaker.  
+I say 'I could dare' because at that time I did not know him  
+personally, never did I meet him before. I knew him only through his  
+works. And as he puts it, he was hesitating to accept the invitation,  
+but when he accepted the invitation, he was there for all the three  
+days, attended all the sessions, and also encouraged us to arrange  
+such events frequently.  
+  
+His keynote speech is available at  
+<http://sanskrit.uohyd.ernet.in/Symposium/papers/joshi.pdf>, and the  
+video at <http://sanskrit.uohyd.ernet.in/Symposium/video/15-01-09/inau_keynote.rm>  
+  
+May his soul rest in peace, and may his wife have a strength to accept the loss.  
+  
+-- Amba Kulkarni  
+  
+--  
+आ नो भद्रा: क्रतवो यन्तु विश्वत: ll  
+Let noble thoughts come to us from every side.  
+- Rig Veda, I-89-i.  
+Assoc Prof. and Head  
+Department of Sanskrit Studies  
+University of Hyderabad  
+Prof. C.R. Rao Road  
+Hyderabad-500 046  
+  
+(91) 040 23133802(off)  
+  
+<http://sanskrit.uohyd.ernet.in/scl>  
+<http://sanskrit.uohyd.ernet.in/faculty/amba>  
+

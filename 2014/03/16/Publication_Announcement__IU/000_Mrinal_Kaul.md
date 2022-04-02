@@ -1,0 +1,27 @@
++++
+title = "000 Mrinal Kaul"
+
++++
+[[Mrinal Kaul	2014-03-16, 01:57:21 [Source](https://groups.google.com/g/bvparishat/c/IUdTEq5Xq9c)]]
+
+
+
+Dear All,
+
+  
+
+On behalf of Professor Navjivan Rastogi I am sending herewith the details of his new book in Hindi titled "Kāśmīra śivādvayavāda meṃ pramāṇa-cintana": "epistemological speculation in the monistic Śaivism of Kashmir" (pp.14+264) published by LD Institute, Ahmedabad. Prof Rastogi has also send me a table of contents in English which I am enclosing herewith.
+
+  
+
+About the Book:  
+The present monograph opens up a virtually hitherto unexplored area of fertile intellectual tradition of the Trika namely the epistemological. The foremost motivation for the author has been to seek an identifiable Trika model of philosophical enquiry, if there is one. The model, so envisaged, is theorized by him as the Dynamic Theory of Knowledge pivoted on the notion of re- cognition (pratyabhijñā) conceptualized as a rudimentary generalized mode of cognition per se. Spread over seven chapters under two sections plus a large thematic appendix the work seeks to reconstruct system's precise formulations along the nature and definition of source of knowing and its specific modes, integral instrumentalities and the process mechanisms at work graphically recaptured and represented by seven tabular charts. The whole presentation is contextualized within the Trika ontology and against the inherited traditions of logical discourse.
+
+  
+
+Best wishes.
+
+  
+
+Mrinal Kaul
+
