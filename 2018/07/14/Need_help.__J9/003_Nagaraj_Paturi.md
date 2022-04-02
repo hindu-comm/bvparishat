@@ -1,0 +1,81 @@
++++
+title = "003 Nagaraj Paturi"
+
++++
+[[Nagaraj Paturi	2018-07-14, 11:03:18 [Source](https://groups.google.com/g/bvparishat/c/J95Km5nTVis)]]
+
+
+
+These are broad topics.
+
+  
+
+You need to be specific for scholars to be able to help you.
+
+  
+
+What is your research project?
+
+  
+
+On Sat, Jul 14, 2018 at 10:59 AM, shraddha \<[shra...@gujaratuniversity.ac.in]()\> wrote:  
+
+> 
+> >  style="direction:ltr;margin:0;padding:0;font-family:sans-serif;font-size:11pt;color:black"> >
+> Not a single book.. And not particularly વ્રત.. It may be in many > books plus "વ્રત" was just an example. I need to know regarding all > the rites and rituals  
+>   
+> > 
+> >  style="direction:ltr;margin:0;padding:0;font-family:sans-serif;font-size:11pt;color:black"> >
+>  style="direction:ltr;margin:0;padding:0;font-family:sans-serif;font-size:11pt;color:black"> >
+> Get [Outlook for Android](https://aka.ms/ghei36) >
+> 
+> >   
+> > 
+> > ------------------------------------------------------------------------ >
+> 
+> > **From:** [bvpar...@googlegroups.com]() > \<[bvpar...@googlegroups.com]()\> on behalf of Nagaraj Paturi > \<[nagara...@gmail.com]()\>  
+> **Sent:** Saturday, July 14, 2018 10:53:49 AM  
+> **To:** Bharatiya Vidvat parishad  
+> **Subject:** Re: {भारतीयविद्वत्परिषत्} Need help. >
+> 
+> > 
+> > 
+> > 
+> > 
+
+> 
+> > 
+> > 
+> > 
+> > 
+> > Please be specific. >
+> 
+> >   
+> > 
+> > 
+> > Are you looking for a single book that provides scientific /logical > reasoning for various vratas etc. ? >
+> 
+> > 
+> >   
+> > 
+> > 
+> > or
+> > 
+> > 
+> >   
+> > 
+> > 
+> > You have specific vratas etc. in mind and you are looking for a book > that provides scientific /logical reasoning for them?
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+
+
+
+
+
+
+

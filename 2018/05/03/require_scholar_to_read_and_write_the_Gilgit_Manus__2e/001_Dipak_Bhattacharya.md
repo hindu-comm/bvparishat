@@ -1,0 +1,38 @@
++++
+title = "001 Dipak Bhattacharya"
+
++++
+[[Dipak Bhattacharya	2018-05-03, 18:25:25 [Source](https://groups.google.com/g/bvparishat/c/2edwSqZptlg)]]
+
+
+
+3.5.18
+
+Dear Scholar,
+
+If I am not mistaken, the Gilgit manuscripts were largely edited and published under the auspices of Dr. Narendranath Laha and published by, perhaps, the Oriental Book Agency. The editors were Nalinaksha Dutt, Durgamohan Bhattacharyya and others.
+
+Do you want a new edition or edition of unattended manuscripts?
+
+Best
+
+Dipak Bhattacharya
+
+
+
+  
+
+  
+
+
+
+
+
+> --  
+> You received this message because you are subscribed to the Google > Groups "भारतीयविद्वत्परिषत्" group.  
+> To unsubscribe from this group and stop receiving emails from it, send > an email to [bvparishat+unsubscribe@googlegroups.com]().  
+> To post to this group, send email to [bvpar...@googlegroups.com]().  
+> For more options, visit <https://groups.google.com/d/optout>.  
+
+  
+

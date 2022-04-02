@@ -1,0 +1,24 @@
++++
+title = "006 Nagaraj Paturi"
+
++++
+[[Nagaraj Paturi	2015-08-18, 21:08:27 [Source](https://groups.google.com/g/bvparishat/c/qYwD4wqSY48)]]
+
+
+
+The verseused in the context of Govandanam is
+
+
+
+[TABLE]
+
+
+
+
+
+
+
+Prof.Nagaraj Paturi
+
+Hyderabad-500044
+

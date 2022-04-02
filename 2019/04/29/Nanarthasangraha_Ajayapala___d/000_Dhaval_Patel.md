@@ -1,0 +1,27 @@
++++
+title = "000 Dhaval Patel"
+
++++
+[[Dhaval Patel	2019-04-29, 19:32:32 [Source](https://groups.google.com/g/bvparishat/c/_d2mK9uDK1M)]]
+
+
+
+Dear Scholars,
+
+I am looking for missing pages of Nanarthasangraha of Ajayapala from pages 97 onwards.
+
+<https://archive.org/details/in.ernet.dli.2015.491316/page/n109> has data till sakAra, and thereafter the next two pages are blank in scan. The next data is of kSakAra.  
+
+The data about hakArAdi words are missing in the scan.
+
+If any of you would be able to provide those missing pages, I would be obliged.  
+
+  
+--  
+
+Dr. Dhaval Patel, I.A.S
+
+Collector and District Magistrate, Surat  
+
+[www.sanskritworld.in](http://www.sanskritworld.in)
+

@@ -1,0 +1,25 @@
++++
+title = "011 K S Kannan"
+
++++
+[[K S Kannan	2020-12-21, 10:02:18 [Source](https://groups.google.com/g/bvparishat/c/6J0lJtMBsCc)]]
+
+
+
+Thank you Prabhu-ji!  
+
+  
+
+
+
+
+
+> --  
+
+> You received this message because you are subscribed to the Google > Groups "भारतीयविद्वत्परिषत्" group.  
+> To unsubscribe from this group and stop receiving emails from it, send > an email to [bvparishat+...@googlegroups.com]().  
+
+> To view this discussion on the web visit > [https://groups.google.com/d/msgid/bvparishat/ce48b1f1-7d3d-430b-b8f3-7ff90509b10cn%40googlegroups.com](https://groups.google.com/d/msgid/bvparishat/ce48b1f1-7d3d-430b-b8f3-7ff90509b10cn%40googlegroups.com?utm_medium=email&utm_source=footer).  
+
+
+

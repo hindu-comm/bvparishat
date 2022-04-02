@@ -1,0 +1,50 @@
++++
+title = "012 K S Kannan"
+
++++
+[[K S Kannan	2020-10-19, 21:03:01 [Source](https://groups.google.com/g/bvparishat/c/7zOxeXKG19Q)]]
+
+
+
+स्वान्तस्सन्तोषाय
+
+स्वेतर-तुष्ट्यै स्वकीय-कवितानाम् ।
+
+सार्थं स्वारसिकं नः
+
+स्वादयते ते नमोऽस्तु कविवर्य! ॥  
+
+  
+
+  
+
+  
+
+
+
+
+
+> To view this discussion on the web visit > [https://groups.google.com/d/msgid/bvparishat/CAFyW1JErP3vjJ5JB%2Bxg-ba4V0MpJ9awGf7H3sToPBOKG2tK8bw%40mail.gmail.com](https://groups.google.com/d/msgid/bvparishat/CAFyW1JErP3vjJ5JB%2Bxg-ba4V0MpJ9awGf7H3sToPBOKG2tK8bw%40mail.gmail.com?utm_medium=email&utm_source=footer).  
+
+  
+  
+--  
+
+Dr. K.S.Kannan D.Litt.
+
+Sant Rajinder Singh Ji Maharaj Chair Professor, IIT-Madras.  
+
+Senior Fellow, ICSSR, New Delhi.  
+
+Academic Director, Swadeshi Indology.
+
+Member, Academic Council, Veda Vijnana Shodha Samsthana.  
+
+Nominated Member, IIAS, Shimla.
+
+Former Professor, CAHC, Jain University, Bangalore.
+
+Former Director, Karnataka Samskrit University, Bangalore.  
+
+Former Head, Dept. of Sanskrit, The National Colleges, Bangalore.  
+

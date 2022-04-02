@@ -1,0 +1,89 @@
++++
+title = "007 Nagaraj Paturi"
+
++++
+[[Nagaraj Paturi	2017-11-28, 10:23:44 [Source](https://groups.google.com/g/bvparishat/c/CHm267LpfiY)]]
+
+
+
+Dear Sri Krishnaprasad-ji, the book is available for download at
+
+  
+
+<http://ebooks.tirumala.org/Product/?ID=1822>  
+
+  
+
+
+
+
+
+> 
+> > > 
+> > > > \<supra 1.jpg> > > > > 
+> > > 
+> > > > \<supra 2.jpg> > > > > 
+> > > 
+> > > > \<supra 3.jpg> > > > > 
+> > 
+> > 
+> > 
+> > --  
+> > 
+> > 
+
+> 
+> > 
+> > You received this message because you are subscribed to the Google > Groups "भारतीयविद्वत्परिषत्" group.  
+> To unsubscribe from this group and stop receiving emails from it, send > an email to [bvparishat+unsubscribe@googlegroups.com]().  
+> To post to this group, send email to [bvpar...@googlegroups.com]().  
+> For more options, visit <https://groups.google.com/d/optout>.  
+> > 
+> > 
+
+> 
+> > 
+> > 
+> > 
+
+  
+  
+
+  
+
+--  
+
+Nagaraj Paturi
+
+
+
+Hyderabad, Telangana, INDIA.
+
+  
+
+  
+
+BoS, MIT School of Vedic Sciences, Pune, Maharashtra
+
+  
+
+BoS, Chinmaya Vishwavidyapeeth, Veliyanad, Kerala
+
+  
+
+Former Senior Professor of Cultural Studies  
+
+
+
+FLAME School of Communication and FLAME School ofLiberal Education,
+
+
+
+(Pune, Maharashtra,INDIA)
+
+
+
+
+
+
+

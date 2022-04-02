@@ -1,0 +1,52 @@
++++
+title = "000 Suresh Kolichala"
+
++++
+[[Suresh Kolichala	2017-09-30, 21:48:52 [Source](https://groups.google.com/g/bvparishat/c/-HyWif-zvyw)]]
+
+
+
+Dear All,
+
+  
+
+Sorry for the misleading subject of my earlier post. The position is at Emory University in Atlanta, GA (USA), and not at University of Michigan.
+
+  
+
+My apologies,
+
+Suresh.
+
+Atlanta, GA.  
+
+  
+
+On Sat, Sep 30, 2017 at 12:09 PM, Suresh Kolichala \<[suresh.k...@gmail.com]()\> wrote:  
+
+> 
+> > Dear all, >
+>   
+> > Please take a look at the attached advertisement for an open-rank > position at Emory University forTeluguCulture, Literature & History, > and share it with all interested individuals.Feel free to forward to > any potential candidates.
+> >   
+> > I received the message from Prof. Velcheru Narayana Rao, who is > currently serving in that position. >
+>   
+> > Thanks.
+> > Suresh.
+> > 
+> >   
+> > 
+> >   
+> >  style="color:rgb(0,0,0);font-family:Calibri,Helvetica,sans-serif,EmojiFont,&quot;Apple Color Emoji&quot;,&quot;Segoe UI Emoji&quot;,NotoColorEmoji,&quot;Segoe UI Symbol&quot;,&quot;Android Emoji&quot;,EmojiSymbols;font-size:16px"> >
+> The Department of Middle Eastern and South Asian Studies at Emory > University in Atlanta, GA invites applications for the Visweswara Rao > and Sita Koppaka Professorship inTeluguCulture, Literature and > History. Rank is open. Applicants must have Ph.D. in hand by August, > 2018. We seek an interdisciplinary scholar with expertise > inTeluguculture, literature, and history, fluency in classical and > modernTeluguand proficiency in another Indian language, preferably > Sanskrit. The successful applicant will demonstrate an excellent > record in scholarship, ability to teach undergraduates, and capacity > to guide graduate students inTelugutraditions. The candidate will be > expected to help build South Asian studies at Emory generally and to > contribute to the core curriculum and programs of the department. >
+> 
+> > Interested candidates should submit a statement of interest, a c.v., > two sample course syllabi, a writing sample, and a statement in which > the candidate reflects upon his or her experience and vision regarding > the teaching and mentorship of students from diverse > backgrounds.Candidates should request three recommenders to submit > letters on their behalf.All application materials should be > submitted via > Interfolio:[https://apply.interfolio.com/45403](https://apply.interfolio.com/45403) >
+> 
+> > We will start reviewing applicationsNovember 7, 2017and continue > until thepositionis filled.Applications received up to 30 days > after review begins will be given full consideration. >
+> 
+> > Emory University is an Equal Opportunity/Affirmative > Action/Disability/Veteran Employer. Women, minorities, persons with > disabilities and veterans are encouraged to apply.All qualified > applicants will receive consideration for employment without regard to > race, color, religion, sex, sexual orientation, gender identity, > national origin, disability status, protected veteran status, or any > other characteristic protected by law. >
+> 
+> > 
+
+  
+

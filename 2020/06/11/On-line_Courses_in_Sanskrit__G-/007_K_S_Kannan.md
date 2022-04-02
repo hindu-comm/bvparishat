@@ -1,0 +1,27 @@
++++
+title = "007 K S Kannan"
+
++++
+[[K S Kannan	2020-06-12, 12:33:11 [Source](https://groups.google.com/g/bvparishat/c/G-KrZb2BzPE)]]
+
+
+
+A vast resource!
+
+Thank you Ramesh-ji!  
+
+  
+
+
+
+
+
+> --  
+
+> You received this message because you are subscribed to the Google > Groups "भारतीयविद्वत्परिषत्" group.  
+> To unsubscribe from this group and stop receiving emails from it, send > an email to [bvparishat+...@googlegroups.com]().  
+
+> To view this discussion on the web visit > [https://groups.google.com/d/msgid/bvparishat/bac2e95c-c328-4ced-aabe-ab7b321f37abo%40googlegroups.com](https://groups.google.com/d/msgid/bvparishat/bac2e95c-c328-4ced-aabe-ab7b321f37abo%40googlegroups.com?utm_medium=email&utm_source=footer).  
+
+
+

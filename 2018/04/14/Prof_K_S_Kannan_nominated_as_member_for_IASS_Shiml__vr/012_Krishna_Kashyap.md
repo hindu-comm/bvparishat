@@ -1,0 +1,37 @@
++++
+title = "012 Krishna Kashyap"
+
++++
+[[Krishna Kashyap	2018-04-14, 19:15:45 [Source](https://groups.google.com/g/bvparishat/c/vrqDBU9dheg)]]
+
+
+
+Congratulations!
+
+  
+
+*Best Regards,*
+
+*  
+*
+
+*Krishna Kashyap*
+
+  
+
+*  
+*
+
+  
+
+
+
+
+
+> --  
+> You received this message because you are subscribed to the Google > Groups "भारतीयविद्वत्परिषत्" group.  
+
+> To unsubscribe from this group and stop receiving emails from it, send > an email to [bvparishat+unsubscribe@googlegroups.com]().
+
+
+

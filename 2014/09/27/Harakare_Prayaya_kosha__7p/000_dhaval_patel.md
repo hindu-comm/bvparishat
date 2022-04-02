@@ -1,0 +1,44 @@
++++
+title = "000 dhaval patel"
+
++++
+[[dhaval patel	2014-09-27, 19:24:19 [Source](https://groups.google.com/g/bvparishat/c/7pwWuXUQoAQ)]]
+
+
+
+Respected scholars,  
+
+I wanted your help in understanding references given after uNAdi explanations.  
+
+My guess was that it refers to uNAdi sUtra numbers.  
+
+But when I checked the following available uNAdi works, I didn't find the numbers tallying.  
+
+1\. uNAdisUtras with the vRtti of zvetavanavAsin (Uni of Madras, 1933)  
+
+2\. uNAdisUtrANi nArAyaNabhaTTaviracitaprakriyAsarvasvAkhyavRttiyutAni (Uni of Madras, reprinted by NavaraGga, New Delhi, 1992)  
+
+3\. auNAdikapadArNavaH - perusUriviracitaH (Uni of Madras)  
+
+4\. uNAdisUtras of the kAtantra school with vRtti of dUrgasiMha  
+
+5\. uNAdikoSaH - zrI satyavrata zAstrI (cittorgarh)  
+
+6\. dazapAdyuNAdivRttiH (The princess of Wales Sarasvati bhavana text series no 81)  
+  
+
+  
+
+I would be grateful if the scholars can take me to the correct uNAdi work, or explain something about these numbers. (The work of Harakare doesn't seem to mention the edition he referred to).  
+  
+![](https://lh4.googleusercontent.com/xDmbS4YLqJhp8JCkWRmGC5qvodzWrvFgdcpavwWQwIgR03sHEFXRjQRWZ7tO3WegHnPc79csZD-dggz_yNu6HXrApThdhQFdOzAd_Pe1jblIuvhu38oLABkwnYVc9unN5g)  
+  
+
+  
+--  
+Dr. Dhaval Patel, I.A.S
+
+District Development Officer, Rajkot
+
+[www.sanskritworld.in](http://www.sanskritworld.in)
+

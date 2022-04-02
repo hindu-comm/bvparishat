@@ -1,0 +1,23 @@
++++
+title = "008 Jayaraman M"
+
++++
+[[Jayaraman M	2018-04-19, 15:38:05 [Source](https://groups.google.com/g/bvparishat/c/V0aajVWNCvY)]]
+
+
+
+\*व्यदधात्
+
+  
+
+
+
+
+
+> --  
+> You received this message because you are subscribed to a topic in the > Google Groups "भारतीयविद्वत्परिषत्" group.  
+> To unsubscribe from this topic, visit > <https://groups.google.com/d/topic/bvparishat/V0aajVWNCvY/unsubscribe>.  
+> To unsubscribe from this group and all its topics, send an email to > [bvparishat+...@googlegroups.com]().
+
+
+

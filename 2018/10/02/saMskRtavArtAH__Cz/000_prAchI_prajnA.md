@@ -1,0 +1,51 @@
++++
+title = "000 प्राची प्रज्ञा"
+
++++
+[[प्राची प्रज्ञा	2018-10-02, 23:09:56 [Source](https://groups.google.com/g/bvparishat/c/Czsvj7yaXZg)]]
+
+
+
+महोदयाः !
+
+स्वस्ति । विश्वविद्यालयानुदानायोगद्वारा अधिसूचिता सन्दर्भितान्तर्जालशोधपत्रिका (Refereed Peer Reviewed E Journal in Sanskrit, ISSN 2348-8417) “प्राची प्रज्ञा”<https://sites.google.com/site/praachiprajnaa/sanskrtavarta> <https://site> इत्यस्याः पञ्चमवर्षस्य नवमाङ्कः प्राकाश्यमानीतोऽस्ति । धन्यवादाः ।
+
+  
+
+Respected Scholars !
+
+The 9th issue of the 5th year of prācī prajñā, ISSN 2348-8417, The UGC Refereed & Peer Reviewed E-Journal in Sanskrit, has been released and ready for open access.
+
+Thank you.
+
+  
+
+Regards,
+
+डा. सुजाता मुनुकुट्ल
+
+संयुक्तसम्पादिका
+
+"प्राची प्रज्ञा"
+
+The Refereed & Peer Reviewed E-Journal in Sanskrit
+
+<https://sites.google.com/site/praachiprajnaa>
+
+प्राचीमनु प्रदिशं प्रेहि विद्वान् (शुक्लयजुर्वेदः/वामासं / 7. 66)
+
+  
+
+**डा. सुजाता मुनुकुट्ल**
+
+**संयुक्तसम्पादिका**
+
+**"प्राची प्रज्ञा"**prācī prajñā,**ISSN 2348 – 8417**
+
+The Refereed & Peer Reviewed E-Journal in Sanskrit
+
+<https://sites.google.com/site/praachiprajnaa>  
+प्राचीमनु प्रदिशं प्रेहि विद्वान् (शुक्लयजुर्वेदः/वामासं / 7. 66)  
+  
+  
+

@@ -1,0 +1,27 @@
++++
+title = "012 Sundareswaran N.K"
+
++++
+[[Sundareswaran N.K	2020-05-03, 20:23:58 [Source](https://groups.google.com/g/bvparishat/c/HQDmej_cWkE)]]
+
+
+
+Thank you Shri Venkata Sriram.
+
+nks
+
+  
+
+
+
+
+
+> --  
+
+> You received this message because you are subscribed to the Google > Groups "भारतीयविद्वत्परिषत्" group.  
+> To unsubscribe from this group and stop receiving emails from it, send > an email to [bvparishat+...@googlegroups.com]().  
+
+> To view this discussion on the web visit > [https://groups.google.com/d/msgid/bvparishat/3a0ac055-d16a-419c-b321-401bb5dfac00%40googlegroups.com](https://groups.google.com/d/msgid/bvparishat/3a0ac055-d16a-419c-b321-401bb5dfac00%40googlegroups.com?utm_medium=email&utm_source=footer).  
+
+
+

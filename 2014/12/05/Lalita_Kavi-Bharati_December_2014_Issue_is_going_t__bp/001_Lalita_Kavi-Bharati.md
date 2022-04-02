@@ -1,0 +1,35 @@
++++
+title = "001 Lalita Kavi-Bharati"
+
++++
+[[Lalita Kavi-Bharati	2014-12-15, 13:49:00 [Source](https://groups.google.com/g/bvparishat/c/bpGvE4EpLiQ)]]
+
+
+
+Respected Author/Scholar  
+
+Today is the Last date of submission of the Articles for Lalita Kavi-Bharati_2014 Issue..  
+
+this is for your kind information.  
+
+thanks for the continue support this National Research Journal.  
+
+best  
+
+  
+
+
+
+
+
+> --  
+> निराशीर्निर्ममो भूत्वा युध्यस्व विगतज्वरः।। (भ.गी.)  
+> ---  
+> You received this message because you are subscribed to the Google > Groups "भारतीयविद्वत्परिषत्" group.  
+> To unsubscribe from this group and stop receiving emails from it, send > an email to [bvparishat+...@googlegroups.com]().  
+> To post to this group, send email to [bvpar...@googlegroups.com]().  
+> Visit this group at <http://groups.google.com/group/bvparishat>.  
+> For more options, visit <https://groups.google.com/d/optout>.  
+
+
+

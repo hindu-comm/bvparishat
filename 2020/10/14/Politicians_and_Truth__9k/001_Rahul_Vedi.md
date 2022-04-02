@@ -1,0 +1,21 @@
++++
+title = "001 Rahul Vedi"
+
++++
+[[Rahul Vedi	2020-10-15, 07:12:09 [Source](https://groups.google.com/g/bvparishat/c/9kwynf8jBD4)]]
+
+
+
+सत्यं भणति भवान
+
+  
+
+
+
+
+
+> --  
+> You received this message because you are subscribed to the Google > Groups "भारतीयविद्वत्परिषत्" group.  
+> To unsubscribe from this group and stop receiving emails from it, send > an email to [bvparishat+...@googlegroups.com]().  
+> To view this discussion on the web visit > [https://groups.google.com/d/msgid/bvparishat/CAB3-dzfXSSNfYe-E7jN1Eyhmb4M5dFGAB8m1gvdP6UGWSoahBg%40mail.gmail.com](https://groups.google.com/d/msgid/bvparishat/CAB3-dzfXSSNfYe-E7jN1Eyhmb4M5dFGAB8m1gvdP6UGWSoahBg%40mail.gmail.com?utm_medium=email&utm_source=footer).  
+

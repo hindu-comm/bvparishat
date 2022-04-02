@@ -1,0 +1,43 @@
++++
+title = "012 venkat veeraraghavan"
+
++++
+[[venkat veeraraghavan	2020-06-13, 16:15:00 [Source](https://groups.google.com/g/bvparishat/c/QaGBM4cWafY)]]
+
+
+
+Dear Shri Paturi Garu,
+
+  
+
+Thanks for the article.
+
+I did not know about the local tribal legends. Very interesting!
+
+I frequently find that the simpler folk are more chaste in passing on myths without regard to whether they are "intellectual" enough for appreciation from without or not.
+
+They embody more the quality of aarjavamthan some of us.
+
+  
+
+Thanks again!
+
+  
+
+Regards,
+
+  
+
+Venkat
+
+  
+
+
+
+
+
+> You received this message because you are subscribed to a topic in the > Google Groups "भारतीयविद्वत्परिषत्" group.  
+> To unsubscribe from this topic, visit > <https://groups.google.com/d/topic/bvparishat/QaGBM4cWafY/unsubscribe>.  
+> To unsubscribe from this group and all its topics, send an email to > [bvparishat+...@googlegroups.com]().  
+> To view this discussion on the web visit > [https://groups.google.com/d/msgid/bvparishat/CAJGj9eaKK5TPKJWbJ6%2BKgw6LEYrm9xi_O8-fzhSjMWHjqj1MNw%40mail.gmail.com](https://groups.google.com/d/msgid/bvparishat/CAJGj9eaKK5TPKJWbJ6%2BKgw6LEYrm9xi_O8-fzhSjMWHjqj1MNw%40mail.gmail.com?utm_medium=email&utm_source=footer).  
+

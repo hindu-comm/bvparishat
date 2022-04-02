@@ -1,0 +1,31 @@
++++
+title = "001 Venkatesh Murthy"
+
++++
+[[Venkatesh Murthy	2017-05-22, 14:56:25 [Source](https://groups.google.com/g/bvparishat/c/hjbI7x-7lUI)]]
+
+
+
+Namaste  
+  
+Before we worry how California schools are portraying Hinduism is it  
+not urgent to worry how Indian schools are portraying Hinduism and  
+history? Why should good ideas always come from the West?  
+
+
+
+\> --  
+\> You received this message because you are subscribed to the Google Groups  
+\> "भारतीयविद्वत्परिषत्" group.  
+\> To unsubscribe from this group and stop receiving emails from it, send an  
+\> email to [bvparishat+...@googlegroups.com]().  
+\> To post to this group, send email to [bvpar...@googlegroups.com]().  
+\> For more options, visit <https://groups.google.com/d/optout>.  
+  
+  
+  
+--  
+Regards  
+  
+-Venkatesh  
+

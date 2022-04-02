@@ -1,0 +1,26 @@
++++
+title = "001 Reeta Bhattacharya"
+
++++
+[[Reeta Bhattacharya	2017-10-09, 01:08:49 [Source](https://groups.google.com/g/bvparishat/c/fM0aa1JZWqE)]]
+
+
+
+Prof SenSharma is a pioneer in Kashmir Saivaism.
+
+Regards,
+
+Reeta Bhattacharya
+
+  
+
+
+
+
+
+> --  
+> You received this message because you are subscribed to the Google > Groups "भारतीयविद्वत्परिषत्" group.  
+> To unsubscribe from this group and stop receiving emails from it, send > an email to [bvparishat+unsubscribe@googlegroups.com]().  
+> To post to this group, send email to [bvpar...@googlegroups.com]().  
+> For more options, visit <https://groups.google.com/d/optout>.  
+

@@ -1,0 +1,16 @@
++++
+title = "005 Sati Shankar"
+
++++
+[[Sati Shankar	2018-04-27, 09:38:01 [Source](https://groups.google.com/g/bvparishat/c/Fkf14Q3aSiE)]]
+
+
+
+CONGRATULATIONS TO THE FOUNDERS AND THE MEMBERSOF BVP.
+
+I WISH BVP TO BE THE PRIME ENSEMBLE OF THE THINKERS IN INDIAN TRADITION, ART, LITERATURE, CULTURE, AND SCIENCE.
+
+Sati Shankar
+
+
+

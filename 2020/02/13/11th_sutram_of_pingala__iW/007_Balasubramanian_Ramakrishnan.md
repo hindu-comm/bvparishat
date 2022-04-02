@@ -1,0 +1,33 @@
++++
+title = "007 Balasubramanian Ramakrishnan"
+
++++
+[[Balasubramanian Ramakrishnan	2020-02-14, 08:38:57 [Source](https://groups.google.com/g/bvparishat/c/iWm6sJs8GuE)]]
+
+
+
+avya\~njanAntaM yaddhrasvam-asaMyogaparaM ca yat \|
+
+ananusvArasaMyuktam-etallaghu nibodhatai tallaghu nibodhata \|\|
+
+  
+
+taittirIya prAtishAkhyam (22.15), the one below is 22.14.
+
+  
+
+Ramakrishnan
+
+  
+
+On Thu, Feb 13, 2020 at 9:27 AM L Srinivas \<[lns2...@gmail.com]()\> wrote:  
+
+
+
+> --  
+
+> You received this message because you are subscribed to the Google > Groups "भारतीयविद्वत्परिषत्" group.  
+> To unsubscribe from this group and stop receiving emails from it, send > an email to [bvparishat+...@googlegroups.com]().  
+
+> To view this discussion on the web visit > [https://groups.google.com/d/msgid/bvparishat/56132da1-321e-48a7-9bf2-cf4ff1546624%40googlegroups.com](https://groups.google.com/d/msgid/bvparishat/56132da1-321e-48a7-9bf2-cf4ff1546624%40googlegroups.com?utm_medium=email&utm_source=footer).  
+

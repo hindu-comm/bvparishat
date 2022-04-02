@@ -1,0 +1,54 @@
++++
+title = "008 Jsr Prasad"
+
++++
+[[Jsr Prasad	2014-11-14, 11:29:06 [Source](https://groups.google.com/g/bvparishat/c/f_8kFHzBXcY)]]
+
+
+
+शुभाभिनन्दनानि, डा. Gasūns! प्राप्त-उपाधिको भवान् इतोधिकं कार्यं कुर्यादिति आशास्यते ।  
+  
+
+स्वस्ति  
+
+  
+
+On Fri, Nov 14, 2014 at 3:25 AM, Mārcis Gasūns \<[gas...@gmail.com]()\> wrote:  
+
+> 
+> > As of 13/11/14 I'm PhD. >
+> 
+
+> 
+> > 
+> > --  
+> > 
+> > 
+
+> 
+> > 
+> > निराशीर्निर्ममो भूत्वा युध्यस्व विगतज्वरः।। (भ.गी.)  
+> ---  
+> You received this message because you are subscribed to the Google > Groups "भारतीयविद्वत्परिषत्" group.  
+> To unsubscribe from this group and stop receiving emails from it, send > an email to [bvparishat+...@googlegroups.com]().  
+> To post to this group, send email to [bvpar...@googlegroups.com]().  
+> Visit this group at <http://groups.google.com/group/bvparishat>.  
+> For more options, visit <https://groups.google.com/d/optout>.  
+> > 
+> > 
+
+> 
+> > 
+> > 
+> > 
+
+  
+  
+  
+--  
+
+Dr. Jsra Prasad,  
+Asst. Professor, Dept. of Sanskrit Studies  
+University of Hyderabad, Prof. C.R. Rao Road,  
+Hyderabad - 500 046 Tel: 040-2313 3803  
+

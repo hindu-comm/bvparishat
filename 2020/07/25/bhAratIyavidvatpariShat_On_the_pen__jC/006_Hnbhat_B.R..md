@@ -1,0 +1,27 @@
++++
+title = "006 Hnbhat B.R."
+
++++
+[[Hnbhat B.R.	2020-07-25, 18:35:26 [Source](https://groups.google.com/g/bvparishat/c/jC2hFfU0rVQ)]]
+
+
+
+कर्तरि ल्युट् भवति किम्? कृत्यल्युटो बहुलम् इति बाहुलकात् कर्तरि ल्युटि भवति चेदपि इत्त्वं कथम्?
+
+  
+
+सुप्यजातौ णिनिस्ताच्छील्ये सुप्युपपदे एव भवति कर्तरि।
+
+  
+
+
+
+
+
+> --  
+
+> You received this message because you are subscribed to the Google > Groups "भारतीयविद्वत्परिषत्" group.  
+> To unsubscribe from this group and stop receiving emails from it, send > an email to [bvparishat+...@googlegroups.com]().  
+
+> To view this discussion on the web visit > [https://groups.google.com/d/msgid/bvparishat/95b7e8f1-ebb5-45de-8aba-29bf7deb0b46n%40googlegroups.com](https://groups.google.com/d/msgid/bvparishat/95b7e8f1-ebb5-45de-8aba-29bf7deb0b46n%40googlegroups.com?utm_medium=email&utm_source=footer).  
+

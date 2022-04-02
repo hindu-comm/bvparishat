@@ -1,0 +1,71 @@
++++
+title = "007 Nagaraj Paturi"
+
++++
+[[Nagaraj Paturi	2016-11-25, 16:59:14 [Source](https://groups.google.com/g/bvparishat/c/TBnrUZfwOVo)]]
+
+
+
+Can you give us the context where चिंचेचे सार was found by you?
+
+  
+
+चिचा = uncle
+
+  
+
+चिचाचा /चिचेचे = of uncle
+
+  
+
+सार= ?
+
+  
+
+context may help resolve.
+
+  
+
+
+
+
+
+> 
+> > 
+> > --  
+> You received this message because you are subscribed to the Google > Groups "भारतीयविद्वत्परिषत्" group.  
+> To unsubscribe from this group and stop receiving emails from it, send > an email to [bvparishat+unsubscribe@googlegroups.com]().  
+> To post to this group, send email to [bvpar...@googlegroups.com]().  
+> For more options, visit <https://groups.google.com/d/optout>.  
+> > 
+> > 
+
+  
+  
+  
+--  
+
+Nagaraj Paturi
+
+
+
+Hyderabad, Telangana, INDIA.
+
+
+
+Former Senior Professor of Cultural Studies
+
+
+
+FLAME School of Communication and FLAME School ofLiberal Education,
+
+
+
+(Pune, Maharashtra,INDIA)
+
+
+
+
+
+
+

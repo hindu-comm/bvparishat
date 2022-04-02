@@ -1,0 +1,62 @@
++++
+title = "004 K S Kannan"
+
++++
+[[K S Kannan	2016-08-10, 12:52:22 [Source](https://groups.google.com/g/bvparishat/c/chDQao7sUc4)]]
+
+
+
+***indraścandraḥ kāśakṛtsnāpiśalī śākaṭāyanaḥ/***
+
+***pāṇinyamarajainendrā jayanty aṣṭādiśābdikāḥ//***
+
+  
+
+
+
+
+
+
+
+
+
+> 
+> > 
+> > 
+> > 
+> > > 
+> > > > To unsubscribe from this group and stop receiving emails from it, > > send an email to [bvparishat+unsubscribe@googlegroups.com](). > > > > 
+> > 
+> > 
+> > 
+> > 
+
+> 
+> > 
+> > 
+> > 
+> > > 
+> > > >   
+> > To post to this group, send email to > > [bvpar...@googlegroups.com]().  
+> > For more options, visit <https://groups.google.com/d/optout>.  
+> > > > 
+> > 
+> > 
+> > 
+> > 
+
+> 
+> > 
+> > --  
+> You received this message because you are subscribed to the Google > Groups "भारतीयविद्वत्परिषत्" group.  
+> > 
+> > 
+
+> 
+> > 
+> > To unsubscribe from this group and stop receiving emails from it, send > an email to [bvparishat+unsubscribe@googlegroups.com](). >
+> 
+> > 
+
+
+

@@ -1,0 +1,24 @@
++++
+title = "008 Ajit Gargeshwari"
+
++++
+[[Ajit Gargeshwari	2016-12-31, 17:46:48 [Source](https://groups.google.com/g/bvparishat/c/F14iCmSoL5k)]]
+
+
+
+Thank you Swamiji for your views
+
+Regards
+
+Ajit Gargeshwari
+
+
+
+--  
+
+You received this message because you are subscribed to the Google Groups "भारतीयविद्वत्परिषत्" group.  
+
+To unsubscribe from this group and stop receiving emails from it, send an email to [bvparishat+...@googlegroups.com]().
+
+
+

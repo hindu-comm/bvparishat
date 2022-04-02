@@ -1,0 +1,39 @@
++++
+title = "001 K S Kannan"
+
++++
+[[K S Kannan	2017-10-11, 21:21:18 [Source](https://groups.google.com/g/bvparishat/c/1HR1gPRMTH0)]]
+
+
+
+*Manusmṛti*
+
+**2.148**
+
+***ācāryas tvasya yāṁ jātiṁ vidhivad veda-pāragaḥ \|***
+
+*utpādayati sāvitryā sā satyā sā’jarāmarā \|\|*
+
+***  
+***
+
+**2.170****
+
+*tatra yad brahma-janmāsya mauñjī-bandhana-cihnitam \|*
+
+***tatrāsya mātā sāvitrī pitā tvācārya ucyate \|\|***
+
+  
+
+
+
+
+
+> --  
+> You received this message because you are subscribed to the Google > Groups "भारतीयविद्वत्परिषत्" group.  
+> To unsubscribe from this group and stop receiving emails from it, send > an email to [bvparishat+unsubscribe@googlegroups.com]().  
+> To post to this group, send email to [bvpar...@googlegroups.com]().  
+> For more options, visit <https://groups.google.com/d/optout>.  
+
+  
+

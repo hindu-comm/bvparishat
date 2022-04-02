@@ -1,0 +1,35 @@
++++
+title = "003 Krishna Kashyap"
+
++++
+[[Krishna Kashyap	2021-05-15, 16:57:51 [Source](https://groups.google.com/g/bvparishat/c/LaWniVw_ggA)]]
+
+
+
+He is no more
+
+  
+
+
+
+
+
+> --  
+> You received this message because you are subscribed to the Google > Groups "भारतीयविद्वत्परिषत्" group.  
+> To unsubscribe from this group and stop receiving emails from it, send > an email to [bvparishat+...@googlegroups.com]().  
+> To view this discussion on the web visit > [https://groups.google.com/d/msgid/bvparishat/CAN47gm4d29A0x0FgK2xMtxT29QboU043aoG3PcrjpBM9PQSdAA%40mail.gmail.com](https://groups.google.com/d/msgid/bvparishat/CAN47gm4d29A0x0FgK2xMtxT29QboU043aoG3PcrjpBM9PQSdAA%40mail.gmail.com?utm_medium=email&utm_source=footer).  
+
+--  
+
+*Best Regards,*
+
+*  
+*
+
+*Krishna Kashyap*
+
+  
+
+*  
+*
+

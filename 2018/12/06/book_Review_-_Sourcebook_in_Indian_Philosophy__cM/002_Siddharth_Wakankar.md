@@ -1,0 +1,33 @@
++++
+title = "002 Siddharth Wakankar"
+
++++
+[[Siddharth Wakankar	2018-12-06, 15:40:29 [Source](https://groups.google.com/g/bvparishat/c/cMHVHTy-HZI)]]
+
+
+
+Dr.S.K.Belvalkar and Gurudev Dr.R.D.Ranade wrote a wonderful book on Indian Philosophy.i forgot it's exact title, possibly,A Constructive Study of Indian Philosophy or so.
+
+  
+
+It is considered to be a very sound and authentic book,written in the last century.
+
+  
+
+Best luck in your search.  
+  
+
+Prof. Siddharth Y Wakankar.
+
+  
+
+
+
+
+
+> --  
+> You received this message because you are subscribed to the Google > Groups "भारतीयविद्वत्परिषत्" group.  
+> To unsubscribe from this group and stop receiving emails from it, send > an email to [bvparishat+...@googlegroups.com]().  
+> To post to this group, send email to [bvpar...@googlegroups.com]().  
+> For more options, visit <https://groups.google.com/d/optout>.  
+

@@ -1,0 +1,36 @@
++++
+title = "010 Phani B"
+
++++
+[[Phani B	2019-10-11, 22:54:01 [Source](https://groups.google.com/g/bvparishat/c/vOD0jO9dRu8)]]
+
+
+
+For RV
+
+  
+
+On Fri, 11 Oct, 2019, 6:40 PM Phani B, \<[b.phan...@gmail.com]()\> wrote:  
+
+> 
+> > 
+> > We have a tradition of starting with 4th sarga as well  
+>   
+> > 
+> > 
+> > 
+> > 
+
+
+
+
+
+> 
+> > 
+> > 
+> > > To unsubscribe from this group and stop receiving emails from it, > > send an email to [bvparishat+...@googlegroups.com]().  
+> > To view this discussion on the web visit > > [https://groups.google.com/d/msgid/bvparishat/a86f8dd3-5630-4039-a3d7-ac8ce0566f35%40googlegroups.com](https://groups.google.com/d/msgid/bvparishat/a86f8dd3-5630-4039-a3d7-ac8ce0566f35%40googlegroups.com?utm_medium=email&utm_source=footer).  
+> > 
+> > 
+> > 
+

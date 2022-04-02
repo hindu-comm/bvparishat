@@ -1,0 +1,96 @@
++++
+title = "002 Subrahmanyam Korada"
+
++++
+[[Subrahmanyam Korada	2019-02-16, 12:37:58 [Source](https://groups.google.com/g/bvparishat/c/RTaIFpIYBx8)]]
+
+
+
+नमो विद्वद्भ्यः
+
+  
+
+Can someone, who is observing the 1 year period after a relative passes away, receive mantropadesham during this period from a Guru?
+
+  
+
+Is there a book that states the rules for mantropadesham?
+
+  
+
+                   ----- Vid Ramachandran Gurumoorthy
+
+  
+
+No , it cannot be done ---
+
+  
+
+निर्णयसिन्धुः --
+
+  
+
+दर्शं च पूर्णमासं च कर्म वैतानिकं च यत् ।
+
+सूतके’पि त्यजेत् मोहात् प्रायश्चित्तीयते द्विजः ॥--- **मरीचिः**
+
+  
+
+वैतानिकम् = त्रेताग्निसंबद्धम् ; प्रायश्चित्तीयः = प्रायश्चित्तम् अर्हति ’ भवार्थे वृद्धाच्छः ’ ।
+
+  
+
+सूतके तु समुत्पन्ने स्मार्तं कर्म कथं भवेत् ।
+
+पिण्डयज्ञं चरुं होमम् असगोत्रेण कारयेत् ॥ -- **जातूकर्णः**
+
+  
+
+सूतके मृतके कुर्यात् प्राणायाममन्त्रकम् ।
+
+तथा मार्जनमन्त्रांस्तु मनसोच्चार्य मार्जयेत् ॥
+
+गायत्रीं सम्यगुच्चार्य सूर्यायार्घ्यं निवेदयेत् ।
+
+मार्जनं तु न वा कार्यम् उपस्थानं न चैव हि ॥ **प्रयोगपारिजाते भरद्वाजः**
+
+  
+
+सूतके सावित्र्यांजलिं प्रक्षिप्य सूर्यं ध्यायन्नमस्कुर्यात् -- **पैठीनसिः**
+
+**  
+**
+
+**So मन्त्रोपदेश is not to be done - is कैमुत्यन्यायसिद्धः --**
+
+**  
+**
+
+**सन्ध्यादिकार्यमेव मानसिकं ( न तु वाचिकम् ) कुर्यात् - किमुत मन्त्रोपदेशः ?**
+
+**  
+**
+
+धन्यो’स्मि
+
+  
+
+  
+
+Dr.Korada Subrahmanyam  
+Professor of Sanskrit, CALTS,  
+University of Hyderabad,  
+Ph:09866110741(M),91-40-23010741(R),040-23133660(O)
+
+*Skype Id: Subrahmanyam Korada*
+
+*Blog: [Koradeeyam.blogspot.in](http://Koradeeyam.blogspot.in)*  
+  
+  
+  
+  
+
+  
+
+
+

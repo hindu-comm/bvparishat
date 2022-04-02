@@ -1,0 +1,23 @@
++++
+title = "020 శ్రీకర సాహా"
+
++++
+[[శ్రీకర సాహా	2019-09-19, 16:38:52 [Source](https://groups.google.com/g/bvparishat/c/p9EMR0OAnkU)]]
+
+
+
+There was an article analyzing how this came to be associated with tripuNDra wearing etc people in South India, and how that happened from around/shortly after the time of appayya dIkShitendra. I'll dig it up if I can remember it.
+
+  
+
+
+
+
+
+> --  
+> You received this message because you are subscribed to a topic in the > Google Groups "भारतीयविद्वत्परिषत्" group.  
+> To unsubscribe from this topic, visit > <https://groups.google.com/d/topic/bvparishat/p9EMR0OAnkU/unsubscribe>.  
+> To unsubscribe from this group and all its topics, send an email to > [bvparishat+...@googlegroups.com]().  
+
+> To view this discussion on the web visit > [https://groups.google.com/d/msgid/bvparishat/CAKk0Te3gn_E4y0d80hnThgf5SAWsYsEYE1HfK-RKfzNry6yQCw%40mail.gmail.com](https://groups.google.com/d/msgid/bvparishat/CAKk0Te3gn_E4y0d80hnThgf5SAWsYsEYE1HfK-RKfzNry6yQCw%40mail.gmail.com?utm_medium=email&utm_source=footer).  
+

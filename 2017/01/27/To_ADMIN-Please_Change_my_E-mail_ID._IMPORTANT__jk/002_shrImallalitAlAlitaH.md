@@ -1,0 +1,197 @@
++++
+title = "002 श्रीमल्ललितालालितः"
+
++++
+[[श्रीमल्ललितालालितः	2017-01-27, 08:44:46 [Source](https://groups.google.com/g/bvparishat/c/jkYMBGT-Ihg)]]
+
+
+
+I can't understand why these requests are posted to group.  
+We need to educate people about the ways to join and leave the group on their own.  
+Change requests must be sent to moderators only.  
+Complaints of members about subscription should also land in moderator's inbox only.  
+At least, moderator must not post change confirmation to public. It is also revealing more details about e-mail address etc.
+
+  
+
+On Fri 27 Jan, 2017, 07:54 Nagaraj Paturi, \<[nagara...@gmail.com]()\> wrote:  
+
+> 
+> > Old email id removed . New one added.
+> > 
+> >   
+> > 
+> > 
+> >                    -- Moderator >
+> 
+> > 
+
+> 
+> > 
+> > 2017-01-27 7:02 GMT+05:30 Bipin Jha \<[kumarvi...@gmail.com]()\>:  
+> > 
+> > 
+
+> 
+> > 
+> > > 
+> > > > 
+> > > > नमांसि  
+> > Dear ADMIN महोदय, मेरा यह ई मेल \[[kumarvi...@gmail.com]()\] जो इस > > समूह से जुडा है इसे बदलने का कष्ट करें कारण यह मेल 15 GB अपने अधिकतम > > सीमा के सन्निकट है। साथ ही नये मेल को जोडने का कष्ट करें ताकि नियमित > > updates \[[bipinkumarj...@gmail.com]()\] पर प्राप्त कर सकूं। > > > > 
+> > > > 
+> > 
+> > 
+
+> 
+> > 
+> > > 
+> > > > 
+> > > >   
+> > > > 
+> > > > 
+> > > > सादर > > > > 
+> > > > 
+> > > >   
+> > > > 
+> > > > 
+> > > > For Verification you may use > > > > 
+> > > > 
+> > > >   
+> > > > 
+> > > > 
+> > 
+> > 
+
+> 
+> > 
+> > > 
+> > > > 
+> > > > [bipinkumarj...@gmail.com]() > > > > 
+> > > > 
+> > 
+> > 
+
+> 
+> > 
+> > > 
+> > > > 
+> > > > +91 945-9456-822 > > > > 
+> > > > 
+> > > >   
+> > > > 
+> > > > 
+> > > >  > style="color:rgb(34,34,34);text-transform:none;text-indent:0px;letter-spacing:normal;font-family:arial,sans-serif;font-size:small;font-style:normal;font-weight:normal;word-spacing:0px;white-space:normal"> > > > >   
+> >   
+> > > > 
+> > > > --  
+> > > >  > style="color:rgb(34,34,34);text-transform:none;text-indent:0px;letter-spacing:normal;font-family:arial,sans-serif;font-size:small;font-style:normal;font-weight:normal;word-spacing:0px;white-space:normal"> > > > > 
+> > > > 
+> > > > 
+> > > > 
+> > > > With Regards  
+> >   
+> > > > **Dr. Bipin Kumar Jha** > > > > Department of Sahitya > > > > Rashtriya Sanskrit Sansthan (DU) > > > > Vedvyas Campus, Balahar, HP > > > > **Web > > page**--[](http://goog_703261051/)<http://bipinkumarjha.sarasvatniketanam.org/>  
+> > > > 
+> > > > --------------------------------------------------------------------- > > > > [**Spreading Sanskrit, the Bipin > > way.**](https://www.facebook.com/bipinjhasanskrit?fref=nf) > > > > **  
+> > ** > > > > **भद्रंकर्णेभिः शृणुयाम देवा भद्रं पश्येमाक्षिभिर्यजत्राः।**  
+> > > > **स्थिरैरङ्गैस्तुष्टुवांसस्तनूभिर्व्यशेम देवहितं यदायुः॥  
+> > -----------------------------------------------------------------** > > > > **तमेव धीरो विज्ञाय प्रज्ञाकुर्वीत ब्राह्मणः।  
+> > नानुध्यायाद् बहूञ्छब्दान्वाचो विग्लापनं हि तदिति॥  
+> > बृहदारण्यकोपनिषदि4-4-21  
+> > \*A wise seeker knowing should knowledge acquire,\*  
+> > \*Not involving in words, understanding desire,\*  
+> > \*All are mere words save the Self realization,\*  
+> > \*Only tiring of speech is all verbalization!\*** > > > > 
+> > > > 
+> > > > 
+> > > > 
+> > > > 
+> > > > 
+> > > > 
+> > 
+> > 
+
+> 
+> > 
+> > > --  
+> > You received this message because you are subscribed to the Google > > Groups "भारतीयविद्वत्परिषत्" group.  
+> > 
+> > 
+
+> 
+> > 
+> > > To unsubscribe from this group and stop receiving emails from it, > > send an email to [bvparishat+...@googlegroups.com](). >
+> 
+> > 
+
+> 
+> > 
+> > >   
+> > To post to this group, send email to > > [bvpar...@googlegroups.com]().  
+> > For more options, visit <https://groups.google.com/d/optout>.  
+> > 
+> > 
+
+> 
+> >   
+>   
+> > 
+> >   
+> > 
+> > --  
+> > 
+> > 
+> > 
+> > 
+> > Nagaraj Paturi >
+> 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > Hyderabad, Telangana, INDIA. >
+> 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > Former Senior Professor of Cultural Studies >
+> 
+> > 
+> > 
+> > 
+> > 
+> > FLAME School of Communication and FLAME School ofLiberal Education, >
+> 
+> > 
+> > 
+> > 
+> > 
+> > (Pune, Maharashtra,INDIA) >
+> 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+
+> 
+> > 
+> > --  
+
+> You received this message because you are subscribed to the Google > Groups "भारतीयविद्वत्परिषत्" group.  
+
+> To unsubscribe from this group and stop receiving emails from it, send > an email to [bvparishat+...@googlegroups.com]().
+
+
+

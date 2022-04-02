@@ -1,0 +1,24 @@
++++
+title = "003 Madhav Deshpande"
+
++++
+[[Madhav Deshpande	2015-03-04, 10:08:32 [Source](https://groups.google.com/g/bvparishat/c/nJgs6v56ZUo)]]
+
+
+
+Such feelings of primacy for a given language are shared by numerous traditions across the world. I have read publications arguing for the primacy of Hebrew, Arabic, and Tamil among other languages. The Jain tradition claims that the Ardhamagadhi is the language of the Gods, while the Pali tradition claims Pali to be the original language of all beings (sabbasattānaṃ mūlabhāsā). The Sanskrit tradition claimed such a position of primacy for Sanskrit. While reading works belonging to any particular tradition, we need to keep it specific context in mind, and understand the claims of a given tradition within that specific context. The Sanskrit grammarians and philosophers denying a primary meaning-conveying ability (śakti) to Apabhraṃśas, and granting them only the ability to remind the listener of the proper Sanskrit word, which only conveys meaning, are a good example of this insular tendency.
+Granting the primary meaning-signifying ability to Apabhraṃśas and regional languages is seen only as an exceptional opinion, and only very late. 
+
+  
+
+Madhav Deshpande
+
+
+
+Madhav M. Deshpande  
+Professor of Sanskrit and Linguistics  
+Department of Asian Languages and Cultures  
+202 South Thayer Street, Suite 6111  
+The University of Michigan  
+Ann Arbor, MI 48104-1608, USA  
+

@@ -1,0 +1,28 @@
++++
+title = "001 K S Kannan"
+
++++
+[[K S Kannan	2017-04-22, 14:04:14 [Source](https://groups.google.com/g/bvparishat/c/_NH7C5Shs5o)]]
+
+
+
+Possible error in 2nd line:
+
+the 10th syllable had to be *laghu*?
+
+  
+
+
+
+
+
+
+
+> --  
+> You received this message because you are subscribed to the Google > Groups "भारतीयविद्वत्परिषत्" group.  
+> To unsubscribe from this group and stop receiving emails from it, send > an email to [bvparishat+unsubscribe@googlegroups.com]().  
+> To post to this group, send email to [bvpar...@googlegroups.com]().  
+> For more options, visit <https://groups.google.com/d/optout>.  
+
+  
+

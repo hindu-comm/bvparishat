@@ -1,0 +1,40 @@
++++
+title = "001 G S S Murthy"
+
++++
+[[G S S Murthy	2020-02-18, 11:02:44 [Source](https://groups.google.com/g/bvparishat/c/BdNVYYNIQEk)]]
+
+
+
+1.Thanks. Very nice. Is the speaker from South India?
+
+2\. Has there been any experiment to synthesize shlokas using standard recordings for phonemes?
+
+Regards,
+
+Murthy
+
+  
+
+
+
+
+
+> --  
+> You received this message because you are subscribed to the Google > Groups "भारतीयविद्वत्परिषत्" group.  
+> To unsubscribe from this group and stop receiving emails from it, send > an email to [bvparishat+...@googlegroups.com]().  
+> To view this discussion on the web visit > [https://groups.google.com/d/msgid/bvparishat/CAFY6qgGiEgE%3Dy_EBohXDbgfXisJHPgegXjsvUYh89igm9GuNoQ%40mail.gmail.com](https://groups.google.com/d/msgid/bvparishat/CAFY6qgGiEgE%3Dy_EBohXDbgfXisJHPgegXjsvUYh89igm9GuNoQ%40mail.gmail.com?utm_medium=email&utm_source=footer).  
+
+  
+
+  
+
+--  
+
+My web site : <http://murthygss.tripod.com/index.htm>  
+and also my Sanskrit blog :
+
+<http://simplesanskrit.blogspot.com/>
+
+*[http://gssmurthy.blogspot.com](http://gssmurthy.blogspot.com/)*
+

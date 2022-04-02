@@ -1,0 +1,38 @@
++++
+title = "014 Ajit Gargeshwari"
+
++++
+[[Ajit Gargeshwari	2020-10-13, 08:51:24 [Source](https://groups.google.com/g/bvparishat/c/6KCSZ-Bo5ag)]]
+
+
+
+On Legendary accounts
+
+Aitihya Mala Of Kottarathil Sankunni Srikumari The Great Legends of Kerala En. Tr. Ramachandran In two Volumes  
+
+Kerala Udaya (Keralodaya) An Epic Kavya On Kerla History Dharma Raja Adat  
+
+Regards  
+Ajit Gargeshwari
+
+Web site Visit <https://archive.org/details/@sri_gargeshwari_digital_foundation>
+
+<https://archive.org/details/karnatakasamskritauniversity>
+
+न जायते म्रियते वा कदाचिन्नायं भूत्वा भविता वा न भूयः।  
+अजो नित्यः शाश्वतोऽयं पुराणो न हन्यते हन्यमाने शरीरे।।2.20।।
+
+  
+
+  
+
+
+
+
+
+> --  
+> You received this message because you are subscribed to a topic in the > Google Groups "भारतीयविद्वत्परिषत्" group.  
+> To unsubscribe from this topic, visit > <https://groups.google.com/d/topic/bvparishat/6KCSZ-Bo5ag/unsubscribe>.  
+> To unsubscribe from this group and all its topics, send an email to > [bvparishat+...@googlegroups.com]().  
+> To view this discussion on the web visit > [https://groups.google.com/d/msgid/bvparishat/597b3641-0d2f-4da7-b7e2-2676d2646261n%40googlegroups.com](https://groups.google.com/d/msgid/bvparishat/597b3641-0d2f-4da7-b7e2-2676d2646261n%40googlegroups.com?utm_medium=email&utm_source=footer).  
+

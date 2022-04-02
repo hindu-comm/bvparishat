@@ -1,0 +1,188 @@
++++
+title = "001 Subrahmanyam Korada"
+
++++
+[[Subrahmanyam Korada	2014-07-24, 23:24:16 [Source](https://groups.google.com/g/bvparishat/c/TOkeEPNuEhU)]]
+
+
+
+नमो विद्वद्भ्यः
+
+  
+
+meanings of and relationship among Aakriti , anaakriti and Samjnaa as they appeared in Mahabhashya of Patanjali -- Vidvan Joshi  
+
+  
+
+-----------
+
+  
+
+अनाकृतिः संज्ञा - महाभाष्यम् - वृद्दिरादैच् 1-1-1
+
+  
+
+Here in the present context the term आकृतिः is employed in a different sense.
+
+  
+
+Firstly - **आकृतिः** --
+
+  
+
+जात्याकृतिव्यक्तयस्तु पदार्थः (व्यक्त्याकृतिजातयस्तु पदार्थः) - **न्यायसूत्रम् 2-2-67**
+
+  
+
+Following विवक्षा one of them is प्रधानम् and the rest are अप्रधानम् - but all thte three will be there as पदार्थ (meaning) of a शब्द ।
+
+  
+
+आकृतिः = **संस्थानम् = अवयवसंयोगः** - example - पिष्टमयी गौः।
+
+  
+
+Patanjali employed this term in the sense of संस्थानम् as well as जाति - सिद्धे शब्दार्थसंबन्धे ...( **वार्तिकम् - पस्पशाह्निकम्**)
+
+  
+
+Kumarila (**प्रत्यक्षसूत्रम् - श्लोकवार्तिकम्**) says - जातिमेवाकृतिं प्राहुः व्यक्तिरक्रियते यया।
+
+  
+
+As the time went on आकृति is left and only जाति and व्यक्ति remained .
+
+  
+
+**अनाकृतिः संज्ञा --**
+
+  
+
+Context --
+
+  
+
+वृद्धिरादैच् - Panini says - in my शास्त्रम् the संज्ञा - वृद्धिः denotes three संज्ञिs - आ ऐ and औ ।
+
+संज्ञायते सम्यक् ज्ञायते अनया इति संज्ञा ( **ज्ञा = अवबोधने , ’ आतश्चोपसर्गे " पा सू - अङ् प्रत्ययः, टाप् )**
+
+  
+
+**पूर्वपक्षः** - how would one know as to whether वृद्धि is संज्ञा or आदैच् ?
+
+  
+
+Therefore there should be a संज्ञाधिकार - ’ **संज्ञाधिकारः संज्ञासंप्रत्ययार्थः** ’ (वार्तिकम्)
+
+  
+
+संज्ञासंप्रत्ययः = संज्ञाज्ञानम् - this is संज्ञा
+
+  
+
+**भाष्यम्** - "अथ संज्ञाः " इत्येवं प्रकृत्य वृद्ध्यादयः शब्दाः पठितव्याः ।
+
+  
+
+**सिद्धान्तवार्तिकम्** -- आचार्याचारात् स्ंज्ञासिद्धिः ।
+
+  
+
+**भाष्यम्** - किमिदम् आचार्याचारादिति ? आचार्याणामुपचारात् । (उपचारः= व्यवहारः , स च शक्तिग्राहकशिरोमणिः - **शक्तिग्रहं व्याकरणोपमान ... व्यवहारतश्च**)
+
+  
+
+So , since Panini employed the term वृद्धिः to denote आदैच् , there need not be any संज्ञाधिकार ।
+
+  
+
+Another **सिद्धान्तवार्तिकम् - अनाकृतिः।**
+
+  
+
+**भाष्यम् - अथवा अनाकृतिः संज्ञा** , अकृतिमन्तः संज्ञिनः । लोके’पि ह्याकृतिमतो मांसपिण्डस्य देवदत्त इति संज्ञा क्रियते ।
+
+  
+
+Here the term आकृतिः means भेदः -आकृत्या साहचर्यात् लाक्षणिकार्थः (**कैयटः)** - that means यत्र आकृतिः तत्र भेदः - बहुव्रीहिः -- आकृतिः = भेदः यस्यां नास्ति सा अनाकृतिः-- तादृशी संज्ञा ।
+
+  
+
+In the present case the term वृद्धिः does not have any भेद - rather आदैच् , ie the संज्ञि , has got भेद -- आ ऐ औ ।
+
+Actually this is न्यायसिद्धम् - generally name is one - due to अवस्थाभेद
+the named is many - **देवदत्तः is संज्ञा --- मुण्डी / जटी / शिखी / बालः / युवा / वृद्धः मांसपिण्डः( all in one ).**
+
+  
+
+If there is प्रयोजनम् then there can be many संज्ञाः - तव्यत् is a प्रत्यय and it is given many संज्ञाs - **कृत् , कृत्यः , प्रत्ययः\|**
+
+  
+
+The वार्तिकम् is not required nor संज्ञाधिकार - as there cannot be अनर्थकत्वम् of this सूत्रम् - how ?
+
+  
+
+This is शास्त्रम् and unlike लोकव्यवहार , there will not be a single वर्ण that is अनर्थक --
+
+  
+
+**भाष्यम् - न यथा लोके तथा व्याकरणे । प्रमाणभूत आचार्यो दर्भपवित्रपाणिः शुचाववकाशे प्राङ्मुख उपविश्य महता प्रयत्नेन सूत्राणि प्रणयति स्म । तत्र अवश्यं वर्णेनाप्यनर्थकेन भवितुम्, किमियता सूत्रेण ?**
+
+So any प्रत्याख्यानम् by Patanjali is not to be taken seriously - it is just to show another way.
+
+  
+
+वृद्ध्यादीनां च शास्त्रे’स्मिन् शक्त्यवच्छेदलक्षणः।
+
+अकृत्रिमो’भिसम्बन्धॊ विशेषणविशेष्यवत्॥ (**वाक्यपदीयम्, वाक्यकाण्डः 365**)
+
+  
+
+शक्त्यवच्छेदलक्षणः = शक्तिनियमरूपः -- अस्य शब्दस्य अयमर्थः इति वचनम्।
+
+अकृत्रिमः = सहजसिद्धः।
+
+अभिसम्बन्धः = अर्थेन सम्बन्धः।
+
+the सम्बन्ध between सज्ञा and संज्ञि is just like the one between विशेषणम् and विशेष्यम्।
+
+धन्यो’स्मि
+
+  
+
+  
+
+  
+
+Dr.Korada Subrahmanyam  
+Professor of Sanskrit, CALTS,  
+University of Hyderabad,  
+Ph:09866110741(M),91-40-23010741(R),040-23133660(O)
+
+*Skype Id: Subrahmanyam Korada*
+
+*Personal Website: [www.korada.org](http://www.korada.org)*  
+  
+  
+  
+  
+
+  
+  
+
+
+
+
+
+> --  
+> निराशीर्निर्ममो भूत्वा युध्यस्व विगतज्वरः।। (भ.गी.)  
+> ---  
+> You received this message because you are subscribed to the Google > Groups "भारतीयविद्वत्परिषत्" group.  
+> To unsubscribe from this group and stop receiving emails from it, send > an email to [bvparishat+...@googlegroups.com]().  
+> To post to this group, send email to [bvpar...@googlegroups.com]().  
+> Visit this group at <http://groups.google.com/group/bvparishat>.  
+> For more options, visit <https://groups.google.com/d/optout>.  
+
+  
+

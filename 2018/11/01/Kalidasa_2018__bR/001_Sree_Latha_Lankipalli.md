@@ -1,0 +1,28 @@
++++
+title = "001 Sree Latha Lankipalli"
+
++++
+[[Sree Latha Lankipalli	2018-11-01, 22:12:56 [Source](https://groups.google.com/g/bvparishat/c/bR2F4OueHwA)]]
+
+
+
+धन्यवादः महोदय।
+
+Got the information but how to send research papers and when will be the last date. Details needed.
+
+Thanks in advance
+
+Sreelatha.
+
+  
+
+
+
+
+
+> --  
+> You received this message because you are subscribed to the Google > Groups "भारतीयविद्वत्परिषत्" group.  
+> To unsubscribe from this group and stop receiving emails from it, send > an email to [bvparishat+...@googlegroups.com]().  
+> To post to this group, send email to [bvpar...@googlegroups.com]().  
+> For more options, visit <https://groups.google.com/d/optout>.  
+

@@ -1,0 +1,37 @@
++++
+title = "039 venkat veeraraghavan"
+
++++
+[[venkat veeraraghavan	2019-10-24, 17:29:51 [Source](https://groups.google.com/g/bvparishat/c/ZiKE_YEmocc)]]
+
+
+
+Dear Shri Sriram garu,
+
+  
+
+Ramayana and Shri Rama are a source of inspiration for all. Generally Shri Rama is regarded as maryAda Purushotthama. In every act of His one is able to see this scrupulousattention to dharma and karmaanushthaana...even towards birds like jataayu at a time when He is without means, in the middle of the forest, in deep distress and deprived of Sita, He does not give excuses and walks firmly on the razor's edge.
+
+If Shri Rama is not worth following, I do not know who is.
+
+  
+
+Regards,
+
+  
+
+Venkat
+
+  
+
+
+
+
+
+> --  
+> You received this message because you are subscribed to a topic in the > Google Groups "भारतीयविद्वत्परिषत्" group.  
+> To unsubscribe from this topic, visit > <https://groups.google.com/d/topic/bvparishat/ZiKE_YEmocc/unsubscribe>.  
+> To unsubscribe from this group and all its topics, send an email to > [bvparishat+...@googlegroups.com]().  
+
+> To view this discussion on the web visit > [https://groups.google.com/d/msgid/bvparishat/7406783b-b3bc-4f13-b3ec-a89a429ed0bc%40googlegroups.com](https://groups.google.com/d/msgid/bvparishat/7406783b-b3bc-4f13-b3ec-a89a429ed0bc%40googlegroups.com?utm_medium=email&utm_source=footer).  
+

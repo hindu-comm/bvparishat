@@ -1,0 +1,25 @@
++++
+title = "000 nagarajpaturi"
+
++++
+[[nagarajpaturi	2016-01-30, 09:18:52 [Source](https://groups.google.com/g/bvparishat/c/pNeekOO115k)]]
+
+
+
+Prof. Bijoy Misra's post in the thread on "Caste system has left imprints on genes: study" is being copied here by me, since it can make a separate new topic. This post has two passages with two different topics. The first is as follows:
+
+
+
+After Sir CV Raman got his Nobel Prize , Indian scientific research went into a copying mode.
+
+This was possibly state-sponsored first by British and then encouraged by the Government of  
+India to create volume. The ambition was Vishvamitra style imitation competition which created  
+some techniques but no knowledge. When I came to Pune Observatory about forty five years  
+ago, such copying was rampant. My Sanskrit exposure is less than thirty years, but what thrills  
+me is the amazing work on the fundamentals. To distinguish between what works and what could  
+be true has been the hallmark of Indian thinking. But then the compilation of each शास्त्र must
+
+have been preceded by centuries of development where speculations must have been nurtured.
+
+We have to feel that energy and simulate it back in our educational processes
+

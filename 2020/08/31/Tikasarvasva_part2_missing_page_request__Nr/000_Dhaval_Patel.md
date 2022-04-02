@@ -1,0 +1,32 @@
++++
+title = "000 Dhaval Patel"
+
++++
+[[Dhaval Patel	2020-08-31, 20:45:05 [Source](https://groups.google.com/g/bvparishat/c/NrxDH9xXHoc)]]
+
+
+
+Dear scholars,
+
+  
+
+The following link has pages 305-312 missing.
+
+  
+
+<https://archive.org/stream/Trivandrum_Sanskrit_Series_TSS/TSS-043_Namalinganusasana_-_Skt_commentary_-_T_Ganapati_Sastri_-_vol_2_1915#page/n307/mode/2up>
+
+  
+
+Kind request to all scholars to provide the missing pages scan, if accessible to them.
+
+  
+
+--  
+
+Dr. Dhaval Patel, I.A.S
+
+Collector and District Magistrate, Surat  
+
+[www.sanskritworld.in](http://www.sanskritworld.in)
+

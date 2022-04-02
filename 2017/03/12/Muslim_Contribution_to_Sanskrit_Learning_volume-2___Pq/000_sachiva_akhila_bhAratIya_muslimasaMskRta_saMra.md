@@ -1,0 +1,26 @@
++++
+title = "000 सचिव : अखिल भारतीय मुस्लिम‑संस्कृत संरक्षण एवं"
+
++++
+[[सचिव : अखिल भारतीय मुस्लिम‑संस्कृत संरक्षण एवं	2017-03-12, 23:38:57 [Source](https://groups.google.com/g/bvparishat/c/PqMZy_jNvY8)]]
+
+
+
+Respected Scholars
+
+‘Muslim contributions to Sanskrit learning’ was a much accepted subject in the beginning of 20^(th)and the last of 19^(th)century in India, but now-a-days the subject has been forgotten by us. Now with this little start, we are trying to make a path for our researchers and scholars of Sanskrit, Persian and History of India, whereupon they will attach each-other.
+
+
+
+In this regard a highly reached volume on the topichas been published a year’s ego entitled मु़ग़ल सम्राट् अकबर और संस्कृत containing 1030 pages in two parts.
+
+For further detail you may click on the web-address given below:
+
+
+
+<http://www.pratnakirti.com/Publications-Akbar1.html>
+
+  
+
+<http://www.pratnakirti.com/Publications-Akbar202.html>
+

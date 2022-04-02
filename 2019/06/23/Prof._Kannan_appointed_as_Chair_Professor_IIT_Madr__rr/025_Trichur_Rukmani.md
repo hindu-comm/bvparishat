@@ -1,0 +1,29 @@
++++
+title = "025 Trichur Rukmani"
+
++++
+[[Trichur Rukmani	2019-06-24, 12:59:18 [Source](https://groups.google.com/g/bvparishat/c/rr0Ddpo5VMA)]]
+
+
+
+Hearty Congratulations Kannanji for this well deserved honour
+
+om
+
+rukmani and rajamani
+
+  
+
+
+
+
+
+> --  
+> You received this message because you are subscribed to the Google > Groups "भारतीयविद्वत्परिषत्" group.  
+> To unsubscribe from this group and stop receiving emails from it, send > an email to [bvparishat+...@googlegroups.com]().  
+> To post to this group, send email to [bvpar...@googlegroups.com]().  
+
+> To view this discussion on the web visit > [https://groups.google.com/d/msgid/bvparishat/CAFffahAWXe8_YpChCJPWywV%2BM9N1SpV8kqqP7gz-CtNaS94FCA%40mail.gmail.com](https://groups.google.com/d/msgid/bvparishat/CAFffahAWXe8_YpChCJPWywV%2BM9N1SpV8kqqP7gz-CtNaS94FCA%40mail.gmail.com?utm_medium=email&utm_source=footer).
+
+
+

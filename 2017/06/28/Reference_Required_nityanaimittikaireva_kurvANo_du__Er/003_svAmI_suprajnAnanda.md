@@ -1,0 +1,89 @@
++++
+title = "003 स्वामी सुप्रज्ञानन्द:"
+
++++
+[[स्वामी सुप्रज्ञानन्द:	2017-06-28, 16:18:50 [Source](https://groups.google.com/g/bvparishat/c/Er1n20u1JvI)]]
+
+
+
+Namaste
+
+Thank you very much sir.
+
+  
+
+\~With Regards,  
+Swami Suprajnananda,  
+Sri Ramakrishna Math,  
+31, Ramakrishna Math Road,  
+Mylapore, Chennai - 600 004  
+
+Ph: 8870102521  
+
+  
+
+
+
+
+
+
+
+
+
+> 
+> >  style="color:#000;background-color:#fff;font-family:times new roman,new york,times,serif;font-size:16px"> >
+> 
+> > 
+> > 
+> >  style="font-family:times new roman,new york,times,serif;font-size:16px"> >
+>  style="font-family:HelveticaNeue,Helvetica Neue,Helvetica,Arial,Lucida Grande,Sans-Serif;font-size:16px"> >
+> 
+> > 
+> > To unsubscribe from this group and stop receiving emails from it, send > an email to [bvparishat+unsubscribe@googlegroups.com](). >
+> 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+
+> 
+> >  style="color:#000;background-color:#fff;font-family:times new roman,new york,times,serif;font-size:16px"> >
+> 
+> > 
+> > 
+> >  style="font-family:times new roman,new york,times,serif;font-size:16px"> >
+>  style="font-family:HelveticaNeue,Helvetica Neue,Helvetica,Arial,Lucida Grande,Sans-Serif;font-size:16px"> >
+> 
+> > 
+> >   
+> To post to this group, send email to [bvpar...@googlegroups.com]().  
+> For more options, visit <https://groups.google.com/d/optout>.  
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+
+> 
+> > 
+> > --  
+> You received this message because you are subscribed to the Google > Groups "भारतीयविद्वत्परिषत्" group.  
+> > 
+> > 
+
+> 
+> > 
+> > To unsubscribe from this group and stop receiving emails from it, send > an email to [bvparishat+unsubscribe@googlegroups.com](). >
+> 
+> > 
+
+
+

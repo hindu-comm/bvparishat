@@ -1,0 +1,10 @@
++++
+title = "000 kamalesh pathak"
+
++++
+[[kamalesh pathak	2017-05-15, 00:03:38 [Source](https://groups.google.com/g/bvparishat/c/0lf2aQ32IPI)]]
+
+
+
+Prabhas a small village in the coast of Gujrat till the freedom's sun rised to India livid it's life like the rest village across India, but post Diwali the occasion of new year the iron man sardar vallabh Bhai Patel visited this town, seen the monuments of destroyed shrine of Lord somnath, he decided to rebuilt a gigantic temple with the public share and today we the the village is hot destination of religious tourism, Prabhas is pre historic place, this is the place where Lord Krishna came his Yadav clan to move towards gaulok. Prabhas is a pre historic place and before the Mahabharata era it's religious value was on top, so the the sage yagyavalkya came to prabhas for penance of the sun God, it's said that Lord sun taught Veda to this great sage which is know shukla or white yajurved. Great sage kanaad who gave us the vaisheshik darshan -the first atomic science, the sage kanaad were from prabhas. Prabhas is a phrase of two words prabhas+s means where the light exists is prabhas, Earlier times when the current Puja system was not developed and the worship of mother nature was widely performed across akhand Bharat varsha there were 12+4 a total 16 sun temple of sun God were shining at prabhas, perhaps prabhas is the only place where one can think for so many sun temples, this has some extra ordinary reasons for these temples and it's proud of prabhas, Prabhas has an unparallel special pride that is not possible on the earth for any religious place - that's un obstructed water path unto southpole. Yes, of any religion- any religious place don't have un obstructed water path unto southpole. To know the secrets of this miracle path I went to several learned peoples but none of them satisfied me, so I went to ritual texts of Hindu shastri and asked help from science and the clue I got from that which I am going t publish as a book.
+

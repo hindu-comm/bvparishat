@@ -1,0 +1,34 @@
++++
+title = "005 Madhav Deshpande"
+
++++
+[[Madhav Deshpande	2020-06-15, 18:15:40 [Source](https://groups.google.com/g/bvparishat/c/kj8G-Bvn-6M)]]
+
+
+
+What a beautiful quote. Somewhat similar to my first encounter with American English. After studying in English for years in Pune, I traveled to New York on a ship in August 1968, and when my ship docked in the harbor, the dock workers helped me get my ocean trunks down to the shore. To my absolute shock, I could not understand a word of what they said to me and they could not quite follow my Puneri English. My pride in being able to communicate in English in Pune was completely shattered, and only the intervention by a Marathi acquaintance who had come to receive me saved the day. Best wishes,
+
+  
+
+Madhav M. Deshpande
+
+Professor Emeritus, Sanskrit and Linguistics
+
+University of Michigan, Ann Arbor, Michigan, USA
+
+Senior Fellow, Oxford Center for Hindu Studies  
+
+  
+
+\[Residence: Campbell, California, USA\]  
+
+  
+
+  
+
+
+
+
+
+
+

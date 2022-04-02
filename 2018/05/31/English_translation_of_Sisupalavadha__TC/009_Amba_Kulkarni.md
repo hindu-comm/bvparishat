@@ -1,0 +1,68 @@
++++
+title = "009 Amba Kulkarni"
+
++++
+[[Amba Kulkarni	2018-06-01, 11:48:23 [Source](https://groups.google.com/g/bvparishat/c/TCgdOlAf0iI)]]
+
+
+
+Hearty congratulations Prof. Rajendran.  
+  
+
+Best regards,  
+
+Amba Kulkarni  
+
+  
+
+
+
+
+
+> --  
+
+> You received this message because you are subscribed to the Google > Groups "भारतीयविद्वत्परिषत्" group.  
+
+> To unsubscribe from this group and stop receiving emails from it, send > an email to [bvparishat+unsubscribe@googlegroups.com]().
+
+>   
+> To post to this group, send email to [bvpar...@googlegroups.com]().  
+> For more options, visit <https://groups.google.com/d/optout>.  
+
+  
+  
+  
+--  
+
+  
+आ नो भद्रा: क्रतवो यन्तु विश्वत: ll  
+Let noble thoughts come to us from every side.  
+- Rig Veda, I-89-i.
+
+  
+
+Professor & Head  
+Department of Sanskrit Studies  
+University of Hyderabad  
+
+Prof. C.R. Rao Road
+
+Hyderabad-500 046  
+
+  
+(91) 040 23133802(off)
+
+  
+
+[http://scl.samsaadhanii.in](http://sanskrit.uohyd.ac.in/faculty/amba)
+
+<http://sanskrit.uohyd.ac.in/scl>
+
+[http://tdil-dc.in/scl](http://sanskrit.uohyd.ac.in/scl)  
+
+<http://sanskrit.uohyd.ac.in/faculty/amba>
+
+  
+
+  
+

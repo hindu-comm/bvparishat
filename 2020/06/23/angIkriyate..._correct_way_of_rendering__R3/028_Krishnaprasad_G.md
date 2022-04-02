@@ -1,0 +1,23 @@
++++
+title = "028 Krishnaprasad G"
+
++++
+[[Krishnaprasad G	2020-06-24, 13:13:42 [Source](https://groups.google.com/g/bvparishat/c/R3zePqByeus)]]
+
+
+
+  
+
+Charudeva Sastri uses spacein his books.
+
+  
+
+
+
+
+
+> You received this message because you are subscribed to a topic in the > Google Groups "भारतीयविद्वत्परिषत्" group.  
+> To unsubscribe from this topic, visit > <https://groups.google.com/d/topic/bvparishat/R3zePqByeus/unsubscribe>.  
+> To unsubscribe from this group and all its topics, send an email to > [bvparishat+...@googlegroups.com]().  
+> To view this discussion on the web visit > [https://groups.google.com/d/msgid/bvparishat/CAN47gm5yb%2B3D8u5%3D%2BDQHUgCJ77sHCa5G1z1FiZByZ37u%3D7k%3Daw%40mail.gmail.com](https://groups.google.com/d/msgid/bvparishat/CAN47gm5yb%2B3D8u5%3D%2BDQHUgCJ77sHCa5G1z1FiZByZ37u%3D7k%3Daw%40mail.gmail.com?utm_medium=email&utm_source=footer).  
+

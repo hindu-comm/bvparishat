@@ -1,0 +1,169 @@
++++
+title = "003 Ganesh R"
+
++++
+[[Ganesh R	2018-05-15, 17:35:51 [Source](https://groups.google.com/g/bvparishat/c/iK0ntjn2rns)]]
+
+
+
+NamaskaaraH, can you please give the correct mail ID or contact number of Dr. Dhaundialji as the one that is provided here is not the delivering my mail
+
+  
+
+  
+
+On Tue 15 May, 2018, 5:04 PM Nagaraj Paturi, \<[nagara...@gmail.com]()\> wrote:  
+
+> 
+> > Congratulations Dr Vimal Kishore Dhaundiyal-ji.
+> > 
+
+> 
+> > 
+> > 2018-05-15 16:55 GMT+05:30 Dr.Vimal kishore dhaundiyal > \<[vimalsa...@gmail.com]()\>:  
+> > 
+> > 
+
+> 
+> > 
+> > > Vasantsena ,वसन्तसेना -हिन्दी उपन्यास  
+> > लेखक -डॉ.विमल ढौंडियाल  
+> >   
+> > डॉ. विमल ढौंडियाल लिखित वसन्तसेना हिंदी साहित्य का एक महत्वपूर्ण > > उपन्यास है \|लेखक ने कथानक में वैचारिक विकास एवं एेतिहासिक > > पौर्वापर्य का पर्याप्त ध्यान रखते हुए हिंदी की इस महत्वपूर्ण कृत्ति > > का प्रणयन किया है  
+> > चारूदत्त एवं वसन्तसेना की कथा को उपन्यास के माध्यम से जन जन तक > > पहुँचाने का श्लाघनीय कार्य करने के लिए सतेश्वरी प्रकाशन डॉ. ढौंडियाल > > का आभार व्यक्त करता है \|  
+> > लेखक का संक्षिप्त परिचय  
+> > शिक्षा -शास्त्री, शिक्षा-शास्त्री, एम. ए. (संस्कृत), पीएच. डी.  
+> > 
+> > 
+
+> 
+> > 
+> > > 
+> > > > 
+> > > > प्रकाशित पुस्तक-कमलाकरभट्ट और मीमांसा प्रमेय(मीमांसा-दर्शन)  
+> >   
+> > वसन्तसेना(हिंदी उपन्यास)  
+> >   
+> > प्रमुख शोधपत्र-  
+> >   
+> > महान गणितज्ञ आर्यभट \|  
+> >   
+> > कमलाकर भट्ट से पूर्व मीमांसा में प्रमेय-चिंतन \|  
+> >   
+> > कमलाकर भट्ट और मीमांसाकुतूहलम्  
+> >   
+> > अध्यापनकार्य-एन. के बागडोदिया विद्यालय द्वारका  
+> > [email-vim...@gmail.com]()  
+> >   
+> > --  
+> > You received this message because you are subscribed to the Google > > Groups "भारतीयविद्वत्परिषत्" group.  
+> > > > 
+> > > > 
+> > 
+> > 
+
+> 
+> > 
+> > > 
+> > > > 
+> > > > To unsubscribe from this group and stop receiving emails from it, > > send an email to [bvparishat+...@googlegroups.com](). > > > > 
+> > > > 
+> > 
+> > 
+
+> 
+> > 
+> > > 
+> > > > 
+> > > >   
+> > To post to this group, send email to > > [bvpar...@googlegroups.com]().  
+> > For more options, visit <https://groups.google.com/d/optout>.  
+> > > > 
+> > > > 
+> > 
+> > 
+
+> 
+> >   
+>   
+> > 
+> >   
+> > 
+> > --  
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > Nagaraj Paturi >
+> 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > Hyderabad, Telangana, INDIA. >
+> 
+> > 
+> > 
+> >   
+> > 
+> > 
+> >   
+> > 
+> > 
+> > BoS, MIT School of Vedic Sciences, Pune, Maharashtra >
+> 
+> > 
+> >   
+> > 
+> > 
+> > BoS, Chinmaya Vishwavidyapeeth, Veliyanad, Kerala >
+> 
+> > 
+> >   
+> > 
+> > 
+> > Former Senior Professor of Cultural Studies  
+> > 
+> > 
+> > 
+> > 
+> > 
+> > FLAME School of Communication and FLAME School ofLiberal Education, >
+> 
+> > 
+> > 
+> > 
+> > 
+> > (Pune, Maharashtra,INDIA) >
+> 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+
+> 
+> > 
+> > --  
+
+> You received this message because you are subscribed to the Google > Groups "भारतीयविद्वत्परिषत्" group.  
+
+> To unsubscribe from this group and stop receiving emails from it, send > an email to [bvparishat+...@googlegroups.com]().
+
+
+

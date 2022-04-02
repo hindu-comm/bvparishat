@@ -1,0 +1,72 @@
++++
+title = "001 Nagaraj Paturi"
+
++++
+[[Nagaraj Paturi	2019-05-03, 09:46:29 [Source](https://groups.google.com/g/bvparishat/c/4oyslaaBuDQ)]]
+
+
+
+Tracing the ideas of Judaism in Zorastrianism is well established.
+
+  
+
+Sharing of ideas between the Vedic thought and Zorastrianism is equally well established.
+
+  
+
+Though the travelling of Vedic ideas directly to Judaism is not discussed anywhere, diffusion of Vedic-Zorastrian ideas through Zorastrianism to Judaism can be an inference from the combination of the above two well established theories.
+
+  
+
+
+
+
+
+> --  
+> You received this message because you are subscribed to the Google > Groups "भारतीयविद्वत्परिषत्" group.  
+> To unsubscribe from this group and stop receiving emails from it, send > an email to [bvparishat+...@googlegroups.com]().  
+> To post to this group, send email to [bvpar...@googlegroups.com]().  
+> For more options, visit <https://groups.google.com/d/optout>.  
+
+  
+
+  
+
+--  
+
+Nagaraj Paturi
+
+
+
+Hyderabad, Telangana, INDIA.
+
+  
+
+  
+
+Director, Inter-Gurukula-University Centre for Indic Knowledge Systems.
+
+BoS, MIT School of Vedic Sciences, Pune, Maharashtra
+
+  
+
+BoS, Chinmaya Vishwavidyapeeth, Veliyanad, Kerala
+
+  
+
+Former Senior Professor of Cultural Studies  
+
+
+
+FLAME School of Communication and FLAME School ofLiberal Education,
+
+
+
+(Pune, Maharashtra,INDIA)
+
+
+
+
+
+
+

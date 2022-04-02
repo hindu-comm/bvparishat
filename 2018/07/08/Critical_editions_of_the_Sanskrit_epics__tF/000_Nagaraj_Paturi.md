@@ -1,0 +1,280 @@
++++
+title = "000 Nagaraj Paturi"
+
++++
+[[Nagaraj Paturi	2018-07-08, 18:40:32 [Source](https://groups.google.com/g/bvparishat/c/tFpehfy8Er0)]]
+
+
+
+Dr.JoydeepBagchee posted the following on Indology list:
+
+  
+
+> Dear friends, >
+>   
+> > Let me share this work you: Vishwa Adluri andJoydeepBagchee, > Philology and Criticism: A Guide to Mahābhārata Textual Criticism.
+> >   
+> > <https://www.academia.edu/36999444/Philology_and_Criticism_Open_Access> >
+>   
+> > There are a lot of nineteenth-century and erroneous views floating > around in Indology and epic studies such as Sukthankar’s edition > reconstructs a “normative redaction,” Sukthankar classified the mss. > by script (Schriftartprämisse), Sukthankar did not create a stemma but > a“pedigree of versions,” the “Venn diagram” is an improvement on the > stemma, an earlier oral epic was “redacted” by Brahmans, bhakti is a > later “interpolation,” the Mahābhārata is a “sectarian” text following > the logic of “inclusivism,” we can identify“Kṣatriya” passages based > on style, we can apply “layers analysis” (Schichtanalyse), wecan > still recover an earlier oral epic or a heroic epic by applying > “higher criticism,” etc. >
+>   
+> > These views are NOT defensible either through manuscript evidence or > through logic. In our previous book, The Nay Science, we had > demonstrated how these views arose from the German Indologists’ racial > and nationalist prejudices and the problems with their so-called > higher criticism. This new book provides support from lower criticism > for that and shows that no Indologist has made a meaningful > contribution to Mahābhārata criticism after Sukthankar and his team.
+> >   
+> > It also addresses the view that a critical edition does not require a > stemma or a rigorous procedure for sifting variants and establishes > some criteria for any future critical editions of Sanskrit texts.
+> >   
+> > Vishwa and I look forward to new ways of reading texts meaningfully! >
+> JoydeepBagchee >
+> 
+> >   
+> > 
+> >   
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > Dr.JoydeepBagchee >
+> 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > Ludwig-Maximilians-Universität München >
+> 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > [Academia.edu > Homepage](https://fu-berlin.academia.edu/JoydeepBagchee) >
+> 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> >   
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > [The Nay > Science](http://global.oup.com/academic/product/the-nay-science-9780199931361;jsessionid=94DFF6B197750DBE7C7E64A4FB8B28D2?cc=de&lang=en&) >
+> 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > [Argument and > Design](http://www.brill.com/products/book/argument-and-design-unity-mahabharata) >
+> 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > [Reading the Fifth Veda](http://www.brill.com/reading-fifth-veda) >
+> 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > [When the Goddess Was a > Woman](http://www.brill.com/when-goddess-was-woman) >
+> 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > [Transcultural Encounters between Germany and > India](http://www.routledge.com/books/details/9780415844697/) >
+> 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > [German Indology on OBO > Hinduism](http://www.oxfordbibliographies.com/view/document/obo-9780195399318/obo-9780195399318-0147.xml) >
+> 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ >
+> 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > What, then, is Philosophy? >
+> 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > Philosophy is the supremely precious. >
+> 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> >   
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > Plotinus, Enneads I.III.5 >
+> 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+

@@ -1,0 +1,70 @@
++++
+title = "000 Hnbhat B.R."
+
++++
+[[Hnbhat B.R.	2016-04-22, 08:57:47 [Source](https://groups.google.com/g/bvparishat/c/Zm2tIQut59E)]]
+
+
+
+What are the numbers in the Subject line with the tittle Brihaddevataa? Do they refer to page numbers and line numbers where you found your strange suppositions?Brihaddevata by Laurie Patton has these strange suppositions? What is the 'phala' of attaching a long train of previous messages? Is it different from directly replying iin the body of the message or different? Please find answers? For readers it is inconvenient and annoying to read immediate reply in the next message.
+
+Now my opinions on your questions.
+
+On 22-Apr-2016 3:18 am, "N.R.Joshi" \<[gira...@juno.com]()\> wrote:  
+\>  
+\>  
+\> Brihaddevata of Shaunaka contains a large number of devatas. His effort to bring these devatas and their names together in his book indicates that these names were current at his time (around 400BC) in the ancient society. At least some devatas come with their own Ris’is, mantras and chandas.
+
+Why do you think some devatas come with Veda-s and not others come with from somewhere and sometime?
+
+Mantras and Devatas in Brihaddevata are from Rigveda. Oblations are given to a devata, example “ Agnim Jus’Tam nirvaapayaami”. Now there are other two names (devatas) for Agni-Jaataveda and VaisvaaNara. It is said that Agni is in the earth sphere, Jaataveda in middle sphere (of Indra and Vaayu) and Vaishvaanara is in the sphere of the sUrya.  
+\> My question was-Are the phala of giving oblations to these three devatasis the same or different ? How to decide? Do the names Jaataveda and Vaishvaanara (digestive fire in stomach) offer any clue to their functions?
+
+Practice and enjoy to decide whether they are diferent or not, like the phala of repling difereently from others?
+
+All the names can be derivations and that doesn't change the फल of oblations given to the देवता.
+
+\> Wherever it is possible Shaunaka offers etymology of their names. At other places he tells myth (aakhyayana, story) about their names.  
+\> I do understand devotion to one’s Is’ta devata (such as Raama and Krshna) may offer him god realization. Geeta says namaskar to all devas go to Keshava.
+
+आकाशात्पतितं तोयं यथा गच्छति सागरम्।  
+सर्वदेवनमस्कारः केशवं प्रतिगच्छति॥
+
+is the verse you are referring as in Gita. As far as I can remember, it is not said in Gita. Please give the verse number and Chapter number if you find it in Gita.
+
+Gita says
+
+येऽप्यन्यदेवता भक्ता यजन्ते श्रद्धयान्विताः।  
+तेऽपि मामेव कौन्तेय यजन्त्यविधिपूर्वकम्॥९-२३॥
+
+Here it does not say other देवता should not be worshipped, but approves it.
+
+*यो यो यां यां तनुं भक्तः*श्रद्धयार्चितुमिच्छति।  
+तस्य तस्याचलां श्रद्धांतामेव विदधाम्यहम्।।7.21।।
+
+\> Then what was the purpose of all these devatas in Rigveda? Who imagined them? Do they really exist?
+
+Do you think all this devata names and their worship as a fiction story by Shounaka? Then enjoy it as a fiction novel composed by Shounaka than taking them Vedic compositions?
+
+The question is the same to Krishna.
+
+\> Look at the names ---Apaam Napaat, Aja ekapaada, Vaata(wind), Pathya, Swasti, Laaks’a, and name of the historical king Taarks’yais also included, SuparNa, Dadhikra and many more. Other names like Raaka Kuhu, Sinivaalee, etc already mentioned by me.
+
+अक्षसूक्त is a prayer by a gambler to the dice who lost everything gambling to free from their hold. A beautiful poetry to be enjoyed. You can enjoy devataas imagined by the same Rishis for fiction. Why to bother whether they exist or not? If you believe devataas exist, Gita has guided you to devote fully to worship. If not, enjoy Rigveda and the devatas as fictional poetry.
+
+The name of one devataa is Ka (Prajaapati).  
+\> Are the words Deva, Devataa, Daivata, Daivam derived from the root Div- to shine, be bright, to gamble, to throw, cast, (polysemy of Sanskrit roots)?
+
+You are right. All the meanings of the root given in the dictionary can he applied, but necessarily all should be applied irrespective of context. You create confusion only with all the meaning out of context as created in this thread. Choice is yours.
+
+\> We often talk about Adhibhautika and Adhyatmika level. What is the function of the level Adhidaivika?
+
+Gita has defined all the three terms clearly. It s up to you whether to understand these terms or create confusion with these terms.
+
+\> In Rikvidhaana of Shaunaka, mantras are prescribed for very mundane problems (not for sacrifice).
+
+Please explain further. As far as I know,there is not any injunctions on using mantras for mundane purposes and sacrifices are performed with mundane purpose राजा सार्वभौमो अश्वमेधेन यजेत or svarga or attaing apsaras like '*ज्योतिष्टोमेन*स्वर्गकामो यजेत'etc. It is left to the choice of believers or devotees like the choice of single devataa or many for different purposes.  
+.
+
+Hope other Scholars in BVP will give precise answers to your questions. These are only my impressions on reading your message.
+

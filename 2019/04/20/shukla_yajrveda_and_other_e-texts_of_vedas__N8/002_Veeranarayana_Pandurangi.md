@@ -1,0 +1,24 @@
++++
+title = "002 Veeranarayana Pandurangi"
+
++++
+[[Veeranarayana Pandurangi	2019-05-29, 14:33:32 [Source](https://groups.google.com/g/bvparishat/c/N8X1O30gxxQ)]]
+
+
+
+here is a full text of Shukla yajurveda samhita collected from wiki source and put in one file.
+
+  
+
+
+
+
+
+> --  
+> You received this message because you are subscribed to the Google > Groups "भारतीयविद्वत्परिषत्" group.  
+> To unsubscribe from this group and stop receiving emails from it, send > an email to [bvparishat+...@googlegroups.com]().  
+> To post to this group, send email to [bvpar...@googlegroups.com]().  
+> For more options, visit <https://groups.google.com/d/optout>.  
+
+
+

@@ -1,0 +1,21 @@
++++
+title = "001 Hnbhat B.R."
+
++++
+[[Hnbhat B.R.	2020-07-13, 19:17:57 [Source](https://groups.google.com/g/bvparishat/c/m6UzI_oRGT4)]]
+
+
+
+It is simple sandhi वह्निः+ इन्द्रः = वह्निरिन्द्रः।
+
+  
+
+
+
+
+
+> --  
+> You received this message because you are subscribed to the Google > Groups "भारतीयविद्वत्परिषत्" group.  
+> To unsubscribe from this group and stop receiving emails from it, send > an email to [bvparishat+...@googlegroups.com]().  
+> To view this discussion on the web visit > [https://groups.google.com/d/msgid/bvparishat/bb1a9e41-51dc-41cc-89f5-b920b338579co%40googlegroups.com](https://groups.google.com/d/msgid/bvparishat/bb1a9e41-51dc-41cc-89f5-b920b338579co%40googlegroups.com?utm_medium=email&utm_source=footer).  
+

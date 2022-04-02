@@ -1,0 +1,33 @@
++++
+title = "004 Narayan Prasad"
+
++++
+[[Narayan Prasad	2020-05-27, 13:19:09 [Source](https://groups.google.com/g/bvparishat/c/nKhIkwSpEvo)]]
+
+
+
+Namaste.
+
+  
+
+\<\<We at Indic Academy can provide you password to access jstor.>\>
+
+  
+
+That would be very kind of you.
+
+  
+
+Thanks and regards
+
+Narayan Prasad
+
+
+
+
+
+> You received this message because you are subscribed to a topic in the > Google Groups "भारतीयविद्वत्परिषत्" group.  
+> To unsubscribe from this topic, visit > <https://groups.google.com/d/topic/bvparishat/nKhIkwSpEvo/unsubscribe>.  
+> To unsubscribe from this group and all its topics, send an email to > [bvparishat+...@googlegroups.com]().  
+> To view this discussion on the web visit > [https://groups.google.com/d/msgid/bvparishat/CAJGj9eZO1A7pjShsfKPxNRkOg%3DgqomhYR2G8ByZfPmfeKr2gVA%40mail.gmail.com](https://groups.google.com/d/msgid/bvparishat/CAJGj9eZO1A7pjShsfKPxNRkOg%3DgqomhYR2G8ByZfPmfeKr2gVA%40mail.gmail.com?utm_medium=email&utm_source=footer).  
+

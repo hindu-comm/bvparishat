@@ -1,0 +1,36 @@
++++
+title = "004 Narayan Prasad"
+
++++
+[[Narayan Prasad	2020-09-15, 20:37:21 [Source](https://groups.google.com/g/bvparishat/c/eit3KSi9fF4)]]
+
+
+
+नमस्ते श्रीमन्,  
+
+  It is a very interesting manuscript which gives a mixture of the old as well as new styles of theएकार मात्रा in the devanagari script.
+
+Could you kindly give the manuscript details and indicate whether there is any soft copy available?
+
+Attached please find a line from a fairly recent manuscript (but undated) ofअवचूर्णि on श्रीसिद्धहेमचन्द्रशब्दानुशासनम् on the Sutra 7.4.122. It gives only the old style, e.g. in the following words:
+
+तदेतत् , विशेषोक्तम् , लोकव्यपेक्षया, वृत्त्योः, स्वभावेन, अवतिष्ठते।  
+
+  
+
+Regards
+
+Narayan Prasad
+
+  
+
+
+
+
+
+> --  
+> You received this message because you are subscribed to a topic in the > Google Groups "भारतीयविद्वत्परिषत्" group.  
+> To unsubscribe from this topic, visit > <https://groups.google.com/d/topic/bvparishat/eit3KSi9fF4/unsubscribe>.  
+> To unsubscribe from this group and all its topics, send an email to > [bvparishat+...@googlegroups.com]().  
+> To view this discussion on the web visit > [https://groups.google.com/d/msgid/bvparishat/dbf08286-16ef-403b-9f59-efc71a10037co%40googlegroups.com](https://groups.google.com/d/msgid/bvparishat/dbf08286-16ef-403b-9f59-efc71a10037co%40googlegroups.com?utm_medium=email&utm_source=footer).  
+

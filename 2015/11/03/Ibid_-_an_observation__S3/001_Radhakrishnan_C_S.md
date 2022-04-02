@@ -1,0 +1,29 @@
++++
+title = "001 Radhakrishnan C S"
+
++++
+[[Radhakrishnan C S	2015-11-03, 13:03:04 [Source](https://groups.google.com/g/bvparishat/c/S3DBMRDRQ78)]]
+
+
+
+In Tamil, it is ' ivvidam' , which is a combination of iv + idam . Ibid seems to be single word and not a combination as in Tamil. Malayalam belongs to the Dravidian family.
+
+  
+
+Points to ponder, please.
+
+Radhakrishnan
+
+
+
+
+
+> --  
+> निराशीर्निर्ममो भूत्वा युध्यस्व विगतज्वरः।। (भ.गी.)  
+> ---  
+> You received this message because you are subscribed to the Google > Groups "भारतीयविद्वत्परिषत्" group.  
+> To unsubscribe from this group and stop receiving emails from it, send > an email to bvparishat+...@googlegroups.com.  
+> To post to this group, send email to bvpar...@googlegroups.com.  
+> Visit this group at <http://groups.google.com/group/bvparishat>.  
+> For more options, visit <https://groups.google.com/d/optout>.  
+

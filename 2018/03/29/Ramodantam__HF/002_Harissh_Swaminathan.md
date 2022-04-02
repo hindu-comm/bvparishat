@@ -1,0 +1,24 @@
++++
+title = "002 Harissh Swaminathan"
+
++++
+[[Harissh Swaminathan	2018-03-30, 00:01:11 [Source](https://groups.google.com/g/bvparishat/c/HF2GQpghuls)]]
+
+
+
+Thanks. I do have the hard copy for this but am looking for a more detailed one
+
+  
+
+
+
+
+
+> --  
+> You received this message because you are subscribed to the Google > Groups "भारतीयविद्वत्परिषत्" group.  
+> To unsubscribe from this group and stop receiving emails from it, send > an email to [bvparishat+unsubscribe@googlegroups.com]().  
+> To post to this group, send email to [bvpar...@googlegroups.com]().  
+> For more options, visit <https://groups.google.com/d/optout>.  
+
+  
+

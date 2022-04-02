@@ -1,0 +1,21 @@
++++
+title = "001 Jammalamadaka Srinivas"
+
++++
+[[Jammalamadaka Srinivas	2019-11-13, 23:23:47 [Source](https://groups.google.com/g/bvparishat/c/XVNjJ_W5NO4)]]
+
+
+
+Vairagya Satakam?
+
+  
+
+
+
+
+
+> --  
+> You received this message because you are subscribed to the Google > Groups "भारतीयविद्वत्परिषत्" group.  
+> To unsubscribe from this group and stop receiving emails from it, send > an email to [bvparishat+...@googlegroups.com]().  
+> To view this discussion on the web visit > [https://groups.google.com/d/msgid/bvparishat/CAKk0Te32PXWzL%2BPSDqnc8qdtBJ6GK_OxP%2BXy2NiFq6kdhtHgyA%40mail.gmail.com](https://groups.google.com/d/msgid/bvparishat/CAKk0Te32PXWzL%2BPSDqnc8qdtBJ6GK_OxP%2BXy2NiFq6kdhtHgyA%40mail.gmail.com?utm_medium=email&utm_source=footer).  
+

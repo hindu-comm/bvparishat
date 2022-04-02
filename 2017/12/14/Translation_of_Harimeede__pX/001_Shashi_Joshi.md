@@ -1,0 +1,27 @@
++++
+title = "001 Shashi Joshi"
+
++++
+[[Shashi Joshi	2017-12-14, 11:17:06 [Source](https://groups.google.com/g/bvparishat/c/pXtPbo9Nons)]]
+
+
+
+  
+<http://stotram.co.in/harimide-stotram-by-sri-adi-shankaracharya-swami/>  
+
+  
+Thanks,  
+Shashi
+
+  
+
+
+
+
+
+> --  
+> You received this message because you are subscribed to the Google > Groups "भारतीयविद्वत्परिषत्" group.  
+> To unsubscribe from this group and stop receiving emails from it, send > an email to [bvparishat+unsubscribe@googlegroups.com]().  
+> To post to this group, send email to [bvpar...@googlegroups.com]().  
+> For more options, visit <https://groups.google.com/d/optout>.  
+

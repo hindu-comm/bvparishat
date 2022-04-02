@@ -1,0 +1,31 @@
++++
+title = "002 Shashi Joshi"
+
++++
+[[Shashi Joshi	2017-10-31, 04:02:43 [Source](https://groups.google.com/g/bvparishat/c/2xE0MaSnawg)]]
+
+
+
+The same shloka was said earlier by surpaNakhA to describe sItA in a negative way.
+
+  
+
+lakShmaNa uses it now to tell her, but with positive meanings. That is the mastery of vAlmIki. :)  
+  
+
+  
+Thanks,  
+Shashi
+
+  
+
+
+
+
+
+> --  
+> You received this message because you are subscribed to the Google > Groups "भारतीयविद्वत्परिषत्" group.  
+> To unsubscribe from this group and stop receiving emails from it, send > an email to [bvparishat+unsubscribe@googlegroups.com]().  
+> To post to this group, send email to [bvpar...@googlegroups.com]().  
+> For more options, visit <https://groups.google.com/d/optout>.  
+

@@ -1,0 +1,24 @@
++++
+title = "026 Ajit Gargeshwari"
+
++++
+[[Ajit Gargeshwari	2015-11-16, 07:13:56 [Source](https://groups.google.com/g/bvparishat/c/6I4yp4JaWDQ)]]
+
+
+
+Dear Prof. Halder.  
+
+Please search DLI and archives well before askingforPDF books. Please refer to BV Home page Thanks  
+[The Bhagavad Gita Part 2.](http://www.new.dli.gov.in/cgi-bin/metainfo.cgi?&title1=The%20Bhagavad%20Gita%20Part%202&author1=Edgerton,%20Franklin&subject1=PHILOSOPHY.%20PSYCHOLOGY&year=1944%20&language1=English&pages=197&barcode=2030020001637&author2=&identifier1=&publisher1=Harvard%20University%20Press&contributor1=&vendor1=NONE&scanningcentre1=rmsc,%20iiith&slocation1=NONE&sourcelib1=Osmania%20University&scannerno1=7&digitalrepublisher1=Digital%20Library%20Of%20India&digitalpublicationdate1=&numberedpages1=&unnumberedpages1=&rights1=Copyright%20Permitted&copyrightowner1=&copyrightexpirydate1=&format1=Tagged%20Image%20File%20Format%20&url=/data7/upload/0169/348), 2030020001637. Edgerton, Franklin. 1944. English. PHILOSOPHY. PSYCHOLOGY. 197 pgs. [The Bhagavad Gita Part-I (1952).](http://www.new.dli.gov.in/cgi-bin/metainfo.cgi?&title1=The%20Bhagavad%20Gita%20Part-I%20%281952%29&author1=Edgerton%20Franklin.&subject1=NULL&year=1952%20&language1=English&pages=209&barcode=99999990266792&author2=NULL&identifier1=NULL&publisher1=Harvard%20University%20Press.&contributor1=NULL&vendor1=NONE&scanningcentre1=cdac,noida&slocation1=NONE&sourcelib1=LBS%20National%20Academy%20Of%20Administration&scannerno1=0&digitalrepublisher1=Digital%20Library%20Of%20India&digitalpublicationdate1=2009-12-15&numberedpages1=0&unnumberedpages1=0&rights1=OUT_OF_COPYRIGHT&copyrightowner1=NULL&copyrightexpirydate1=0000-00-00&format1=Tagged%20Image%20File%20Format%20&url=/data4/upload/0119/596), 99999990266792. Edgerton Franklin.. 1952. English. NULL. 209 pgs. [The Bhagavad Gita Part-I (1952).](http://www.new.dli.gov.in/cgi-bin/metainfo.cgi?&title1=The%20Bhagavad%20Gita%20Part-I%20%281952%29&author1=Edgerton%20Franklin.&subject1=&year=1952%20&language1=english&pages=209&barcode=99999990822423&author2=&identifier1=&publisher1=Harvard%20University%20Press.&contributor1=&vendor1=NONE&scanningcentre1=cdac,noida&slocation1=NONE&sourcelib1=LBS%20National%20Academy%20Of%20Administration&scannerno1=0&digitalrepublisher1=Digital%20Library%20Of%20India&digitalpublicationdate1=2009-12-15&numberedpages1=&unnumberedpages1=&rights1=OUT_OF_COPYRIGHT&copyrightowner1=&copyrightexpirydate1=&format1=Tagged%20Image%20File%20Format%20&url=/data51/upload/0000/810), 99999990822423. Edgerton Franklin.. 1952. english. . 209 pgs. [The Bhagavad Gita Part-II (1952).](http://www.new.dli.gov.in/cgi-bin/metainfo.cgi?&title1=The%20Bhagavad%20Gita%20Part-II%20%281952%29&author1=Edgerton%20Franklin.&subject1=NULL&year=1952%20&language1=English&pages=187&barcode=99999990266793&author2=NULL&identifier1=NULL&publisher1=Harvard%20University%20Press.&contributor1=NULL&vendor1=NONE&scanningcentre1=cdac,noida&slocation1=NONE&sourcelib1=LBS%20National%20Academy%20Of%20Administration&scannerno1=0&digitalrepublisher1=Digital%20Library%20Of%20India&digitalpublicationdate1=2009-12-15&numberedpages1=0&unnumberedpages1=0&rights1=OUT_OF_COPYRIGHT&copyrightowner1=NULL&copyrightexpirydate1=0000-00-00&format1=Tagged%20Image%20File%20Format%20&url=/data4/upload/0119/597), 99999990266793. Edgerton Franklin.. 1952. English. NULL. 187 pgs. [The Bhagavad Gita Part-II (1952).](http://www.new.dli.gov.in/cgi-bin/metainfo.cgi?&title1=The%20Bhagavad%20Gita%20Part-II%20%281952%29&author1=Edgerton%20Franklin.&subject1=&year=1952%20&language1=english&pages=187&barcode=99999990822424&author2=&identifier1=&publisher1=Harvard%20University%20Press.&contributor1=&vendor1=NONE&scanningcentre1=cdac,noida&slocation1=NONE&sourcelib1=LBS%20National%20Academy%20Of%20Administration&scannerno1=0&digitalrepublisher1=Digital%20Library%20Of%20India&digitalpublicationdate1=2009-12-15&numberedpages1=&unnumberedpages1=&rights1=OUT_OF_COPYRIGHT&copyrightowner1=&copyrightexpirydate1=&format1=Tagged%20Image%20File%20Format%20&url=/data51/upload/0000/811), 99999990822424. Edgerton Franklin.. 1952. english. . 187 pgs. [The_Bhagavad_Gita.](http://www.new.dli.gov.in/cgi-bin/metainfo.cgi?&title1=The_Bhagavad_Gita&author1=Franklin_Edgerton&subject1=&year=1946%20&language1=ENGLISH&pages=190&barcode=2020030003829&author2=&identifier1=&publisher1=Oxford_University&contributor1=Scl&vendor1=NONE&scanningcentre1=rmsc,%20iiith%20&slocation1=NONE&sourcelib1=SCL&scannerno1=&digitalrepublisher1=PAR%20Informatics,%20Hyderabad&digitalpublicationdate1=0000-00-00&numberedpages1=&unnumberedpages1=&rights1=IN_COPYRIGHT&copyrightowner1=&copyrightexpirydate1=&format1=BOOK%20&url=/data8/upload/0208/728), 2020030003829. Franklin_Edgerton. 1946. ENGLISH. . 190 pgs.  
+
+  
+
+Regards  
+Ajit Gargeshwari  
+न जायते म्रियते वा कदाचिन्नायं भूत्वा भविता वा न भूयः।  
+अजो नित्यः शाश्वतोऽयं पुराणो न हन्यते हन्यमाने शरीरे।।2.20।।
+
+  
+
+
+

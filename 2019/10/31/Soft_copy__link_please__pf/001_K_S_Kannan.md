@@ -1,0 +1,21 @@
++++
+title = "001 K S Kannan"
+
++++
+[[K S Kannan	2019-10-31, 13:52:29 [Source](https://groups.google.com/g/bvparishat/c/pfE22hWTdJ0)]]
+
+
+
+I have a different book by Agamika Krishna Dikshita, not this one.
+
+  
+
+
+
+
+
+> --  
+> You received this message because you are subscribed to the Google > Groups "भारतीयविद्वत्परिषत्" group.  
+> To unsubscribe from this group and stop receiving emails from it, send > an email to [bvparishat+...@googlegroups.com]().  
+> To view this discussion on the web visit > [https://groups.google.com/d/msgid/bvparishat/CALPL40_371-EhJDGieubV%2BQi3G%3DqYZ14pTGsyo8hKksFLSL87g%40mail.gmail.com](https://groups.google.com/d/msgid/bvparishat/CALPL40_371-EhJDGieubV%2BQi3G%3DqYZ14pTGsyo8hKksFLSL87g%40mail.gmail.com?utm_medium=email&utm_source=footer).  
+

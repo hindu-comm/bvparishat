@@ -1,0 +1,20 @@
++++
+title = "069 Kalyan"
+
++++
+[[Kalyan	2017-04-29, 23:45:50 [Source](https://groups.google.com/g/bvparishat/c/kZikXaymSIw)]]
+
+
+
+Buddha did not accept the Atman/brahman of the upanishads.
+
+
+
+
+
+> You received this message because you are subscribed to a topic in the > Google Groups "भारतीयविद्वत्परिषत्" group.  
+> To unsubscribe from this topic, visit > <https://groups.google.com/d/topic/bvparishat/kZikXaymSIw/unsubscribe>.  
+> To unsubscribe from this group and all its topics, send an email to > bvparishat+unsubscribe@googlegroups.com.
+
+
+

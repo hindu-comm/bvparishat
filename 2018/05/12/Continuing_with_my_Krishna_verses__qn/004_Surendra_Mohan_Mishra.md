@@ -1,0 +1,58 @@
++++
+title = "004 Surendra Mohan Mishra"
+
++++
+[[Surendra Mohan Mishra	2018-05-15, 02:53:41 [Source](https://groups.google.com/g/bvparishat/c/qnS7pKfrqok)]]
+
+
+
+// श्रीः //
+
+  
+
+हंहो माधव माधवेति मधुना माध्वीकमुग्धस्वन
+
+कालिन्द्यास्तटवाटिकामधुकर प्रारब्धतोदूरग।
+
+स्मारं स्मारमनूनपूर्वमधुरापूर्वं कुलं गोकुलं
+
+गोपीगोपगवां गृणासि विवशःस्मृत्यञ्जलिं प्राञ्जलिः।।
+
+  
+
+सादरं
+
+सुरेन्द्रमोहनमिश्रः।
+
+  
+
+
+
+
+
+> --  
+
+> You received this message because you are subscribed to the Google > Groups "भारतीयविद्वत्परिषत्" group.  
+> To unsubscribe from this group and stop receiving emails from it, send > an email to [bvparishat+unsubscribe@googlegroups.com]().  
+> To post to this group, send email to [bvpar...@googlegroups.com]().  
+> For more options, visit <https://groups.google.com/d/optout>.  
+
+  
+  
+
+  
+
+--  
+
+\*\*\*\*\*  
+Surendramohan Mishra  
+Dept of Sanskrit,Pali & Prakrit  
+Faculty of Indic Studies,Kurukshetra University  
+KURUKSHETRA-136 119,Haryana,INDIA  
+Tel : (Off.)01744 238410(extn.)2504  
+(Mob.)098960 86579;(Res.)01744-238567  
+Blogs : <http://surendrashastram.blogspot.com>  
+      <http://surendra-shaastram.blogspot.com>  
+  
+  
+

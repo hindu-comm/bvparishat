@@ -1,0 +1,24 @@
++++
+title = "008 Vijayananda J"
+
++++
+[[Vijayananda J	2020-02-18, 22:06:17 [Source](https://groups.google.com/g/bvparishat/c/UGv4acV0Qd0)]]
+
+
+
+Thanks Prasad Ji !!
+
+  
+
+  
+
+
+
+
+
+> --  
+> You received this message because you are subscribed to the Google > Groups "भारतीयविद्वत्परिषत्" group.  
+> To unsubscribe from this group and stop receiving emails from it, send > an email to [bvparishat+...@googlegroups.com]().  
+
+> To view this discussion on the web visit > <https://groups.google.com/d/msgid/bvparishat/353b1329-46a1-4292-8bd1-e707ce73c85c%40googlegroups.com>.  
+

@@ -1,0 +1,34 @@
++++
+title = "001 shankara"
+
++++
+[[shankara	2021-01-26, 19:15:16 [Source](https://groups.google.com/g/bvparishat/c/jTzxgiRqevM)]]
+
+
+
+Deeproji,
+
+  
+
+Link to the second one is given below.  
+
+2\. <https://archive.org/details/in.ernet.dli.2015.327239/page/n3/mode/1up>
+
+  
+
+regards  
+shankara
+
+  
+
+  
+
+
+
+
+
+--  
+You received this message because you are subscribed to the Google Groups "भारतीयविद्वत्परिषत्" group.  
+To unsubscribe from this group and stop receiving emails from it, send an email to [bvparishat+...@googlegroups.com]().  
+To view this discussion on the web visit [https://groups.google.com/d/msgid/bvparishat/7822e7a3-dd0d-460a-b7bc-351c76298037n%40googlegroups.com](https://groups.google.com/d/msgid/bvparishat/7822e7a3-dd0d-460a-b7bc-351c76298037n%40googlegroups.com?utm_medium=email&utm_source=footer).  
+

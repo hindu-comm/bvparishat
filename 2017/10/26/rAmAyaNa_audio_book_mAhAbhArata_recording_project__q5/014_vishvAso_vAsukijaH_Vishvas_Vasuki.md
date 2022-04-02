@@ -1,0 +1,93 @@
++++
+title = "014 विश्वासो वासुकिजः (Vishvas Vasuki)"
+
++++
+[[विश्वासो वासुकिजः (Vishvas Vasuki)	2017-11-11, 07:26:48 [Source](https://groups.google.com/g/bvparishat/c/q5bwpD8vsnI)]]
+
+
+
+<https://groups.google.com/forum/#!topic/sanskrit-programmers/ok0c2UrEw8s> has a tip which can be useful here.  
+
+  
+
+
+
+
+
+
+
+
+
+
+
+> 
+> >  style="font-family:courier new,courier,monaco,monospace,sans-serif;font-size:16px"> >
+> 
+> >  style="font-family:'Helvetica Neue',Helvetica,Arial,sans-serif;font-size:13px;color:#26282a"> >
+> 
+> > 
+> > 
+> > To unsubscribe from this group and stop receiving emails from it, send > an email to [bvparishat+unsubscribe@googlegroups.com](). >
+> 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+
+> 
+> >  style="font-family:courier new,courier,monaco,monospace,sans-serif;font-size:16px"> >
+> 
+> >  style="font-family:'Helvetica Neue',Helvetica,Arial,sans-serif;font-size:13px;color:#26282a"> >
+> 
+> > 
+> > 
+> >   
+> To post to this group, send email to [bvpar...@googlegroups.com]().  
+> For more options, visit <https://groups.google.com/d/optout>.  
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+
+> 
+> >  style="font-family:courier new,courier,monaco,monospace,sans-serif;font-size:16px"> >
+> 
+> >  style="font-family:'Helvetica Neue',Helvetica,Arial,sans-serif;font-size:13px;color:#26282a"> >
+> 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > --  
+> > 
+> > 
+
+> 
+> > 
+> > You received this message because you are subscribed to a topic in the > Google Groups "भारतीयविद्वत्परिषत्" group.  
+> To unsubscribe from this topic, visit > <https://groups.google.com/d/topic/bvparishat/q5bwpD8vsnI/unsubscribe>.  
+> To unsubscribe from this group and all its topics, send an email to > [bvparishat+unsubscribe@googlegroups.com]().  
+> > 
+> > 
+
+> 
+> > 
+> > To post to this group, send email to [bvpar...@googlegroups.com]().  
+> For more options, visit <https://groups.google.com/d/optout>.  
+> > 
+> > 
+
+
+

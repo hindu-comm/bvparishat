@@ -1,0 +1,43 @@
++++
+title = "010 Girish Jha"
+
++++
+[[Girish Jha	2020-04-02, 10:07:34 [Source](https://groups.google.com/g/bvparishat/c/BdNVYYNIQEk)]]
+
+
+
+सम्मान्या बान्धवाः
+
+अनाथबन्धुं करुणैकसिन्धुं
+
+मन्दस्मितानन्दितभक्तवृन्दम्।
+
+समुद्धृताशेषदशास्यवंशं
+
+सीतायुतं राममहं प्रपद्ये।।
+
+श्रीरामदिव्योद्भववासरेsद्य
+
+कार्यं समेषां परमास्तिकानाम्।
+
+श्रीजानकीराघवपादपद्मे
+
+प्रार्थ्ये करोणा त्वरया हि नश्येत्।।
+
+  
+
+Girish K.Jha
+
+  
+
+
+
+
+
+> --  
+
+> You received this message because you are subscribed to the Google > Groups "भारतीयविद्वत्परिषत्" group.  
+
+> To unsubscribe from this group and stop receiving emails from it, send > an email to [bvparishat+...@googlegroups.com]().  
+> To view this discussion on the web visit > [https://groups.google.com/d/msgid/bvparishat/CAFY6qgH%3DhsFopAi%2Bq5tbuYgt4TBY%2B3wnYu14LZ8bWtmOE5fW-w%40mail.gmail.com](https://groups.google.com/d/msgid/bvparishat/CAFY6qgH%3DhsFopAi%2Bq5tbuYgt4TBY%2B3wnYu14LZ8bWtmOE5fW-w%40mail.gmail.com?utm_medium=email&utm_source=footer).  
+

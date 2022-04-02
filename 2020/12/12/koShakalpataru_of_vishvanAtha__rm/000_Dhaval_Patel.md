@@ -1,0 +1,56 @@
++++
+title = "000 Dhaval Patel"
+
++++
+[[Dhaval Patel	2020-12-12, 18:23:49 [Source](https://groups.google.com/g/bvparishat/c/rmeNCxypKzA)]]
+
+
+
+Respected Scholars,
+
+Please find attached the digitized version of the following voluminous work on Sanskrit lexicography.
+
+Koṣakalpataru of Viśvanātha
+
+कोषकल्पतरु of विश्वनाथ
+
+  
+
+<https://github.com/sanskrit-kosha/kosha/blob/master/koshakalpataru_vishvanatha/orig/koshakalpataru.txt>  
+
+  
+
+Credits -
+
+1\. Part 2 of this work was typed in painstakingly by Mr. Pradeep Rastogi.
+
+2\. Mr. Nagabhushana Rao of Andhrabharati website provided an alternative digitized version against which the work was compared and checked.  
+
+Details in credits part of metadata.
+
+  
+
+As usual,
+
+1\. The work would be available as API in [kosha.sanskritworld.in/](http://kosha.sanskritworld.in/)
+
+and
+
+2\. The frontend would be working on <https://www.sanskritworld.in/sanskrittool/kosha-search/kosha.html> with Dictionary code KKTV.
+
+  
+
+Please send your corrections and suggestions at <https://github.com/sanskrit-kosha/kosha/issues> .
+
+  
+
+With warm regards,  
+
+--  
+
+Dr. Dhaval Patel, I.A.S
+
+Collector and District Magistrate, Surat  
+
+[www.sanskritworld.in](http://www.sanskritworld.in)
+

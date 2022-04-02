@@ -1,0 +1,31 @@
++++
+title = "001 Shashi Joshi"
+
++++
+[[Shashi Joshi	2018-02-06, 18:50:06 [Source](https://groups.google.com/g/bvparishat/c/fd1GXH5BenU)]]
+
+
+
+Will this do - sarvasiddhantasangraham
+
+  
+<https://archive.org/details/in.ernet.dli.2015.311086>  
+
+  
+Thanks,  
+Shashi
+
+  
+
+On Feb 6, 2018 4:32 PM, "rajeswara" \<[rajes...@gmail.com]()\> wrote:  
+
+> 
+> > Would you help me in searching of 'SvarasidhAntacandrikaca'in any > format.. >
+> 
+
+> --  
+> You received this message because you are subscribed to the Google > Groups "भारतीयविद्वत्परिषत्" group.  
+> To unsubscribe from this group and stop receiving emails from it, send > an email to [bvparishat+unsubscribe@googlegroups.com]().  
+> To post to this group, send email to [bvpar...@googlegroups.com]().  
+> For more options, visit <https://groups.google.com/d/optout>.  
+

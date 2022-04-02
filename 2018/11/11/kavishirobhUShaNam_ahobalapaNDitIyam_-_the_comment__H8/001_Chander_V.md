@@ -1,0 +1,24 @@
++++
+title = "001 Chander V"
+
++++
+[[Chander V	2018-11-11, 19:46:31 [Source](https://groups.google.com/g/bvparishat/c/H8Qcd8p7GM0)]]
+
+
+
+### Bibliographic information
+
+|               |                                                                                                                                                                                                                                                                                                                                                                                                                                                                             | |---------------|-----------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------| | Title         | Kaviśirōbhūṣaṇamu                                                                                                                                                                                                                                                                                                                                                                                                                                                           | | Authors       | [Ahobala](https://www.google.co.in/search?tbo=p&tbm=bks&q=inauthor:%22Ahobala%22&source=gbs_metadata_r&cad=5), [Khaṇḍavalli Lakṣmīrañjanaṃ](https://www.google.co.in/search?tbo=p&tbm=bks&q=inauthor:%22Kha%E1%B9%87%E1%B8%8Davalli+Lak%E1%B9%A3m%C4%ABra%C3%B1jana%E1%B9%83%22&source=gbs_metadata_r&cad=5), [Celamacerla Raṅgācārya](https://www.google.co.in/search?tbo=p&tbm=bks&q=inauthor:%22Celamacerla+Ra%E1%B9%85g%C4%81c%C4%81rya%22&source=gbs_metadata_r&cad=5) | | Compiled by   | Khaṇḍavalli Lakṣmīrañjanaṃ, Celamacerla Raṅgācārya                                                                                                                                                                                                                                                                                                                                                                                                                          | | Publisher     | Āndhra Racayitala Saṅghamu, 1965                                                                                                                                                                                                                                                                                                                                                                                                                                            | | Original from | the University of Michigan                                                                                                                                                                                                                                                                                                                                                                                                                                                  | | Digitized     | 30 Aug 2007                                                                                                                                                                                                                                                                                                                                                                                                                                                                 | | Length        | 722 pages                                                                                                                                                                                                                                                                                                                                                                                                                                                                   |
+
+  
+
+
+
+
+
+> --  
+> You received this message because you are subscribed to the Google > Groups "भारतीयविद्वत्परिषत्" group.  
+> To unsubscribe from this group and stop receiving emails from it, send > an email to [bvparishat+...@googlegroups.com]().  
+> To post to this group, send email to [bvpar...@googlegroups.com]().  
+> For more options, visit <https://groups.google.com/d/optout>.  
+

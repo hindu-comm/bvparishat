@@ -1,0 +1,26 @@
++++
+title = "005 G JAYAMANIKYA SHASTRI"
+
++++
+[[G JAYAMANIKYA SHASTRI	2015-01-13, 17:38:26 [Source](https://groups.google.com/g/bvparishat/c/QUMDsZoEX1M)]]
+
+
+
+sad news
+
+  
+
+
+
+G JAYAMANIKYA SHASTRI  
+ASST.PROFESSOR IN NYAYA  
+DEPARMENT OF SANSKRIT AND IC  
+SCSVMV UNIVERSITY,ENATHUR,KANCHIPURAM,  
+631561.  
+  
+MOBILE:08122891340  
+  
+[EMAIL:jayamani...@gmail.com]()  
+  
+  
+

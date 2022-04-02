@@ -1,0 +1,32 @@
++++
+title = "000 Madhav Deshpande"
+
++++
+[[Madhav Deshpande	2020-09-04, 10:30:28 [Source](https://groups.google.com/g/bvparishat/c/FLqs8slEvs8)]]
+
+
+
+The Joy of a Grammarian
+
+  
+
+Came across a short grammar of Marathi written by Gangadhar Ramchandra Tilak, Lokmanya Tilak's father, and published in 1859. Just take a look:
+
+  
+
+<https://ia801606.us.archive.org/4/items/in.ernet.dli.2015.366368/2015.366368.Laghu-Vyaakarand-a.pdf>
+
+  
+
+Madhav M. Deshpande
+
+Professor Emeritus, Sanskrit and Linguistics
+
+University of Michigan, Ann Arbor, Michigan, USA
+
+Senior Fellow, Oxford Center for Hindu Studies  
+
+  
+
+\[Residence: Campbell, California, USA\]  
+

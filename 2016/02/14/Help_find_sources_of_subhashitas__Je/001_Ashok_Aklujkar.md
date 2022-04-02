@@ -1,0 +1,188 @@
++++
+title = "001 Ashok Aklujkar"
+
++++
+[[Ashok Aklujkar	2016-02-15, 05:47:30 [Source](https://groups.google.com/g/bvparishat/c/Jeu-dCrsyM4)]]
+
+
+
+  
+
+> 
+> > On Feb 14, 2016, at 8:59 AM, Mārcis Gasūns \<[gas...@gmail.com]()\> > wrote: >
+> 
+> >   
+> > 
+> > 
+> > 
+> > … do you know the primary or secondary sources of the 9 subhashitas > bellow? >
+> 
+> > 
+> > 
+
+> 
+> > 
+> > 
+> >   
+> > 
+> > 
+> > आचार्यात् पादमादत्ते पादं शिष्यः स्वमेधया ।
+> > 
+> > 
+> > पादं सब्रह्मचारिभ्यः पादम् कालक्रमेण च ॥ >
+> 
+> > 
+> > 
+
+> 
+> > 
+> > 
+> > 
+
+  
+
+This was discussed on the BVP forum on 2010-05-26-27. At that timeSrinidhi V wrote:I came across a different version of this verse
+(in a commentary of gItAbhAShya-prameyadIpikA) -AcAryAt pAdamAdatte pAdaM shiShyaM svabuddhitaH \|\\\\pAdaM sabrahmacAribhyo \[—- bhyaḥ\] pAdaM vyAkhyAnakaushalAt \|\| Meera H R \<[meer...@gmail.com]()\> contributed: “The actual reading in Haradatta's commentary is: AcAryAt pAdam Adatte pAdaM s'is.yaH svamedhayA \| pAdaM sabrahmacAribhyaH pAdaH kAlena pacyate \|\|
+
+  
+
+Some (e.g., the last one in my present post) seem like verses composed by relatively modern Sanskrit teachers as parts of their textbooks:  
+  
+
+> 
+> > 
+> > 
+> > 
+
+> 
+> > 
+> > 
+> > उत्पलस्यारविन्दस्य मत्स्यस्य कुमुदस्य च । >
+> 
+> > 
+> > 
+
+> 
+> > 
+> > 
+> > एकयोनिप्रसूतानां तेषां गन्धः पृथक् पृथक् ॥ Either the genitives in the > first half should be replaced by nominatives or pāda ‘c’ should be > rephrased.
+> > 
+> > 
+> > 
+
+> 
+> > 
+> > 
+> >   
+> > 
+> > 
+> > एकवर्णं यथा दुग्धं भिन्नवर्णासु धेनुषु। >
+> 
+> > 
+> > 
+
+> 
+> > 
+> > 
+> > तथैव धर्मवैचित्र्यं तत्त्वमेकं परं स्मृतम्॥ (पाठ. तथा धर्मस्य > वैचित्र्ये \[..\] पुनः) This looks like a rewording of a statement in > one of the Brāhmaṇa texts. I will search further when I find time. >
+> 
+> > 
+> > 
+
+> 
+> > 
+> > 
+> >   
+> > 
+> > 
+> >   
+> > 
+> > 
+> > गच्छन् पिपीलको याति योजनानां शतान्यपि। >
+> 
+> > 
+> > 
+
+> 
+> > 
+> > 
+> > अगच्छन् वैनतेयोस्पि पदमेकं न गच्छति॥ I recall a version in which the > feminine pipīlikā was used. In the third pāda, pl correct “s” to an > avagraha. >
+> 
+> > 
+> > 
+
+> 
+> > 
+> > 
+> >   
+> > 
+> > 
+> >   
+> > 
+> > 
+> > चित्ते प्रसन्ने भुवनं प्रसन्नं चित्ते विषण्णे भुवनं विषण्णम्। >
+> 
+> > 
+> > अतोऽभिलाषो यदि ते सुखे स्याच्चित्तप्रसादे प्रथमं यतस्व॥ >
+> 
+> > 
+> >   
+> > 
+> > 
+> >   
+> > 
+> > 
+> > प्राणमेकं परित्यज्य मानमेवाभिरक्षतु । >
+> 
+> > 
+> > 
+
+> 
+> > 
+> > 
+> > अनित्याश्चाध्रुवाः प्राणाः मानमाचन्द्रतारकम् ॥ māna is normally used > in the masculine. The last pāda should read: मान आचन्द्रतारकम् ।। >
+> 
+> > 
+> > 
+
+  
+
+> 
+> > 
+> > 
+> > अल्पकार्यकराः सन्ति ये नरा बहुभाषिणः। >
+> 
+> > 
+> > 
+
+> 
+> > 
+> > शरत्कालीनमेघास्ते नूनं गर्जन्ति केवलम्॥ >
+> 
+> > 
+> >   
+> > 
+> > 
+
+> 
+> > 
+> > अविद्यानाशिनी विद्या भावना भयनाशिनी । bhāvanā seems to have been used > here in a sense that the composer’s native language had. >
+> 
+> > 
+
+> 
+> > 
+> > दारिद्र्यनाशनं दानं शीलं दुर्गतिनाशनं ॥ >
+> 
+> > 
+> >   
+> > 
+> > 
+
+> 
+> > 
+
+a.a.
+
+  
+

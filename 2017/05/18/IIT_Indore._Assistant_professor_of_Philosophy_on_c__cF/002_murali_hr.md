@@ -1,0 +1,20 @@
++++
+title = "002 murali hr"
+
++++
+[[murali hr	2017-05-18, 23:16:31 [Source](https://groups.google.com/g/bvparishat/c/cFJbo1lXYV4)]]
+
+
+
+yes..unfortunately...that is the tragedy of indian academia
+
+
+
+
+
+> --  
+> You received this message because you are subscribed to the Google > Groups "भारतीयविद्वत्परिषत्" group.  
+> To unsubscribe from this group and stop receiving emails from it, send > an email to [bvparishat+unsubscribe@googlegroups.com]().  
+> To post to this group, send email to [bvpar...@googlegroups.com]().  
+> For more options, visit <https://groups.google.com/d/optout>.  
+

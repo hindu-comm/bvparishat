@@ -1,0 +1,34 @@
++++
+title = "010 Jaya Prakash"
+
++++
+[[Jaya Prakash	2016-08-24, 15:34:14 [Source](https://groups.google.com/g/bvparishat/c/x5hHdNAr_xU)]]
+
+
+
+Ok fine then ujayapramaiya i don't want access for the group keep only for jayaprakashmaiya id only.
+
+  
+
+
+
+
+
+> 
+> > 
+> > --  
+> > 
+> > 
+
+> 
+> > 
+> > You received this message because you are subscribed to a topic in the > Google Groups "भारतीयविद्वत्परिषत्" group.  
+> To unsubscribe from this topic, visit > <https://groups.google.com/d/topic/bvparishat/x5hHdNAr_xU/unsubscribe>.  
+> To unsubscribe from this group and all its topics, send an email to > [bvparishat+unsubscribe@googlegroups.com]().  
+> To post to this group, send email to [bvpar...@googlegroups.com]().  
+> For more options, visit <https://groups.google.com/d/optout>.  
+> > 
+> > 
+
+
+

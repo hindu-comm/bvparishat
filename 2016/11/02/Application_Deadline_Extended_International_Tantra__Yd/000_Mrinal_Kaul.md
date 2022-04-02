@@ -1,0 +1,36 @@
++++
+title = "000 Mrinal Kaul"
+
++++
+[[Mrinal Kaul	2016-11-02, 21:27:27 [Source](https://groups.google.com/g/bvparishat/c/YdLuZmw9Ev4)]]
+
+
+
+![Inline images 1](https://groups.google.com/group/bvparishat/attach/719b1cd321014/Tantra%20wrkshop%20poster.jpg?part=0.1&view=1)  
+
+  
+
+Dear All,
+
+  
+
+Please note that the deadline for applying to participate in the **International Tantra Workshop** has been extended to **15 November 2016**. Please spread the word.
+
+  
+
+Also, please see the poster enclosed and more details are mentioned on the link below:
+
+  
+
+<https://kashuradab.wordpress.com/international-workshop-on-tantric-studies/>  
+
+  
+
+Best wishes.
+
+  
+
+Mrinal Kaul
+
+  
+

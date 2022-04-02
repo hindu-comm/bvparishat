@@ -1,0 +1,18 @@
++++
+title = "001 Madhav Deshpande"
+
++++
+[[Madhav Deshpande	2018-06-02, 06:25:14 [Source](https://groups.google.com/g/bvparishat/c/ZDvWVtRCxkc)]]
+
+
+
+Dear Friends,
+
+  
+
+June 1 was the beginning of my retirement from the University of Michigan. I have been informed by my department that from now on my status as "Professor Emeritus" has been officially approved by the University of Michigan. I just returned to San Francisco from a week in London, and during the 11 hour flight I composed 35 new Krishna verses. Will put them up once I get to translating them.  
+
+  
+
+Madhav Deshpande
+

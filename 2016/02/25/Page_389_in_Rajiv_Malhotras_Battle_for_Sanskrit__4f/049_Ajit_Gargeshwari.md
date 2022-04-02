@@ -1,0 +1,21 @@
++++
+title = "049 Ajit Gargeshwari"
+
++++
+[[Ajit Gargeshwari	2016-03-04, 21:23:20 [Source](https://groups.google.com/g/bvparishat/c/4fWAEj38Pzc)]]
+
+
+
+Let me add this as Mod Note: Politics is not discussed on BVP List  
+
+  
+
+Regards  
+Ajit Gargeshwari  
+न जायते म्रियते वा कदाचिन्नायं भूत्वा भविता वा न भूयः।  
+अजो नित्यः शाश्वतोऽयं पुराणो न हन्यते हन्यमाने शरीरे।।2.20।।
+
+  
+
+
+

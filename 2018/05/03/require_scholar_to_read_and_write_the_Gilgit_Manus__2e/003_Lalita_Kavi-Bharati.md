@@ -1,0 +1,62 @@
++++
+title = "003 Lalita Kavi-Bharati"
+
++++
+[[Lalita Kavi-Bharati	2018-05-05, 00:44:30 [Source](https://groups.google.com/g/bvparishat/c/2edwSqZptlg)]]
+
+
+
+Respected/Dear Scholar
+
+  
+
+We need to re-write this manuscripts to bring this in the light for the world scholar..
+
+  
+
+These 8 JPGs images of a Vajrachedika manuscript - serial #10 of the Gilgit corpus.
+
+This is an incomplete manuscript of the Vajrachedika. It is 7 folios (5,7-12) out of the original 12 that have survived. Folios 1-4 and 6 are lost.   
+
+  
+
+we are looking if someone can read and input this language.
+
+It is written in Gilgit/Bamayan Type 1 script dating back to the 6th-7th century.
+
+  
+
+thanks
+
+Santosh Dwivedi
+
+7388674333  
+
+  
+
+  
+
+  
+
+![](https://ci4.googleusercontent.com/proxy/2fCxDxk9JlUr-gbqLIQ2B4-xpxIuD4jT3S6nvJCQkYAF2I5WfXWl9j2DIAYUGN67o4kzF9iaQFwA5mWNAuiHhF5Meho0i-dtSS5fNpggGnOO5LeaaW9R-BNPVXRr52-zU0ksu8O1wJtXwlZmD-2isHxogj9MqQr4S3Zk84OPUcjniZ11GVj725CVv5oPT6Xo4s0l0FM_E0H9nFUosq5qyoWaKxVg6mqGh4Vk4R81c-j460aKzkMrEv3mAnSjTHUCTy93TBiIMgd4UrtpC_QxrXrPtxDGGj1MPlRG5EXjKBuDtry-Y8fwU35vl8tWYuAfEltT12xAJ0-2dxwRZWWej7fy15-Hp1fU-QkP3v9fgNIE92e1jI4chvQIglddLSYZWgY1TaXvj30bFZQF5w-C8LGIBrD6IEr-0Tuww6rf9o7Ofjgfkc1LMx6Q9fd4Hk6b97moyjVv2I2N28SN_KpTOtt-ckm-Og=s0-d-e1-ft#https://mail.google.com/mail/u/0/?ui=2&ik=e3441f477d&view=fimg&th=163284152d35db71&attid=0.5&disp=emb&realattid=ii_jgr2wmr00_16327fae5220cc72&attbid=ANGjdJ99qpkOCrnLp6MH8zur1RWjVdx88l9m9RT1sd99qJv9u7XbDZDX10p5Uq_V1DpNhykl1mj-PO_Ggdk3v0Wmb8IN9UtkOc5EQpd_kt3nIMfF3NLThy3moOAgyRM&sz=w788-h1020&ats=1525461032309&rm=163284152d35db71&zw&atsh=1)  
+![](https://ci5.googleusercontent.com/proxy/04Lb0jUY0UQQrGDrY--euXHhFwzvGzyFZfBeM74HegKlYIhlh-BOk6JKWk86XH5vGWYIQQh53PG8Y0jiMtkCi2FZJsjoL1kutDtAWSaaGQiwuZV4yj-fT8Cdq44kj0z4OAa7yNMhpH4pkgM0RU5nXukR7d73d8cHqL7gRY_-2wGiBeAaBOLMok3lkQtTwNicw-1La3Qk7DOMBuFekrj5c5te7PaZEmfIYz_l8utgrusBBSlfAtrJEimaA-YCtlIFz_4LBxclzVdtMQzKdxojnRtJra6O-TFTIIHuwlo_h1rgNZuuneTWDbVmLSKEwaHDWtpaQ58RGdAKgfZxPPbSyvua8JLuAtBzbgJcE-H6TkVUYhcWqKCFKepk3p29BCwCA9iFvHCEXK5wM_Z9hOUGbO0ainNlpIqa4wrgmRMhiHWi8SKdz_xfFVbG6-maJfo3jbx19XNru2C9OAHzF6q_NVxZPa7k0g=s0-d-e1-ft#https://mail.google.com/mail/u/0/?ui=2&ik=e3441f477d&view=fimg&th=163284152d35db71&attid=0.7&disp=emb&realattid=ii_jgr2ws8z1_16327fb005a49618&attbid=ANGjdJ-QtvK-EcfWk52UMGN-TiXIYz9WZqjou5pBtG7mGmijvGxw6O1JBLCoMw4U8EohE_FlAT0_AaXpsufYrZ7WSz1HjPXbtLwge1ZekHnqGsFfcFbwbs7g0FIY2c4&sz=w788-h1020&ats=1525461032309&rm=163284152d35db71&zw&atsh=1)  
+  
+
+![](https://ci4.googleusercontent.com/proxy/6f9bZ0sFgnc5chzI3bDSVEOc2x9npQSnQNlwA1oHFzpP4lAvI2OSRPwUgqNZ6BiJcmxWANAUMW0eWktiqsO8E9pg5-hTNXJ88Ijv7plrzY1Fg5ZKhad0RTL-b05UaFYaLxfZFE6Oiq-PcOwQoWfnuY1MLpbI0lgQkbOb0QsjLzkDOUoPyS1oq8wC1ie4YLn5luRaQD0VWp2E7DfruKOkKTw3huT9xDKwpcMVfOSPG-wusDdGU3nNGqrvVF9ZsLpHdXh-Yd_X1N8J587ImceAHC8ahv_NUUxwVh3iGm9SK-Z9c7HudK2OkxF4h_jw1k17zdFYEvmfjxk3cdBxsDQCqizQ2AzaiNodvEcoPJPfXU_QyVPLjPApAHuUqpSe7njjXv36QR7Bva0BU1pzR4VqL9D2AjgjOpxQQKjR7Po_Wm_TbCfnqLBHLnGnD82C_9LAUxp3X4_Eg55OXBGIY1Bk-bxdMNTC2Q=s0-d-e1-ft#https://mail.google.com/mail/u/0/?ui=2&ik=e3441f477d&view=fimg&th=163284152d35db71&attid=0.2&disp=emb&realattid=ii_jgr2wxjh2_16327fb22789abf0&attbid=ANGjdJ_-9sfqZoseopVIj0NbD5T8A4YhYBopuMPDabFeDPpGNufwNWMaam-IjFI9g7MQQGy2N-Bb9WFDiNgBwGiVhyPu8UtHQn0fL3sXJ43cqA80HP9Jou9-11wVbY4&sz=w788-h1020&ats=1525461032309&rm=163284152d35db71&zw&atsh=1)  
+![](https://ci3.googleusercontent.com/proxy/DfEICKBs1zWWqbEJ2-rjimV0Vk9FdzBhJBcbYtgoQ2P-BnKUr5rvIMq4mJ_CO7yKUOVeW-AAWyPS7g0hfUhlGGDMJ5rtutBWuo_x8P_q8LVIPTVrunDnO6_nN_J3lWiAJDzOtFPdMjx30VQQL7ZsJbcUUo1swwnoi9qUF1d4TUcOfucUkQSd5H1W1Koo0iQXayJ2_ZGnlUvlJVLCHV6hkOhhqsxTXY_4kxT00-p0-WGDsWitdPNgi2XSFsA5hYtt_OF3-Hiq_47UcR-qfZULfBjuADx0sihLPtjO87MLsKiFxiHH2CBQKvFXNZVQoYN7VHKQABwCMRgg5P61GD9xEwcl4l6IEB4mtdXiClX_ew1gTZTX6LpvzU4I47T18kRCR4oCdbWsVnvTMpTQ7DPi1Y8yEP97rQ0B0UVVIPSeZdy5qaecFPv8OMa-IDfyTonWuBV1JNX3QbaoYwc97_nnKUAQvSz12w=s0-d-e1-ft#https://mail.google.com/mail/u/0/?ui=2&ik=e3441f477d&view=fimg&th=163284152d35db71&attid=0.8&disp=emb&realattid=ii_jgr2x1xg3_16327fb379dbe344&attbid=ANGjdJ_t7mqQaI6hTbZ3TC1Tw0Lwf7SG3rpVqUY7J5_ODpEuCwNlOPymjJ6llL6BZ-0BqNjlQZogBxOzSOQm6R7WS-476v_FPtPyFy9OE56KDfZHRYOfnl3-Qrj_BHY&sz=w788-h1020&ats=1525461032309&rm=163284152d35db71&zw&atsh=1)
+
+  
+
+![](https://ci5.googleusercontent.com/proxy/1BcOCzIpKZSxONLKZ5LjYwUIjT5GPVRnCHn8NNTEt5fYaBaqVfP9PFi5q9xWIZltFkC3G-I6BOVc79oPdSHEBFatW8rGYBLSPEWF8cxu2rVcMvzNRUf2k4IoPtI8uCd3wiUzexxmT22ohTmoxXhkohr5fWrkToeyVZWODrdnrN3SHbDQ4iLsPJVJTFSJu8GT6yHIm668wQVWDsJ7-MXCJSg6U7e55JoJWJ968O3KD71Zi9M_HhW-uY5HB_wOnCP-wNol-HyUznkt1EuomIMV_WYlku4ghqfHg6NxpI011lpuIrPPPyKBBwe5IKO6eYk_CrusY8vIZDipPzp-xHVWY5ndb3gETjgymWk3xZnkXBH2osQYZW8dpNso_eIeejF6IGtSFAdWwHKTuZsYsdchOCp7EiR9bma57L0fPJrn8-rcPtMKnclFZa49GzN_1dThn90x2mflUtkSlkrwuDDNYZYJPA0nZw=s0-d-e1-ft#https://mail.google.com/mail/u/0/?ui=2&ik=e3441f477d&view=fimg&th=163284152d35db71&attid=0.1&disp=emb&realattid=ii_jgr2xf174_16327fb749dd4bcb&attbid=ANGjdJ8rZE3tt1gvcCW81VZkgIQ9fYSQkRL3wVRAJ7jyc-Eibof1Y_JbvpEdLEFe2kyvjRe3D0m1e_-7Kw0tehjFFbwq9VEwN5d1f1meFOOJDGs-ucIqlrHaiOpS5ss&sz=w788-h1020&ats=1525461032309&rm=163284152d35db71&zw&atsh=1)  
+  
+![](https://ci6.googleusercontent.com/proxy/gUp11wPPiHjovtMSvk1nVlnpt0Wio5LfVuFP4M99__BEXCJrqQM75r079LIQZOOth6ynRaL4Mk4TanEaWn2S4rwFL6NKEIbgYpkn1GhxZJwHKFdKDNohvHuoEL-eLJNQNb47jSbd5wtFrvEA_R8yv9Hp50zVSIt8hblrQZwMh3z6ofC504d4DLsGraKt-cBKT5EFH0Nq3nrs6nOcX0xS3fe2Ge_xEFyRJvqC4F39oG-pplrd14ej-fXh1r3h3fLA8owOFRdjUriM2kPBy6ofIpC9qgQqJkmfc2OX6zpezyNGPUauXEtkoy8MvtaO7MoOMMVkKLQ0ILTjsFN3WSX8bU1irIba-6nT3P2sDswPDFNAZ7WH16KIH08eFnOxppy1wo0ZFU8T3tK3Mr8laBXzi-UNL96hkfG6GquUHI7sG4zGeLR4D0GJfIwLHivX3XIrHoS1jbzbwZ7DYnzTsiQbk5hcuB2ESA=s0-d-e1-ft#https://mail.google.com/mail/u/0/?ui=2&ik=e3441f477d&view=fimg&th=163284152d35db71&attid=0.4&disp=emb&realattid=ii_jgr2xlo15_16327fb9a7a5645d&attbid=ANGjdJ_q2q-LbMqh-4RMYtQVukxIfIXPh_Nq4AHiI1qws5P5ocBM9c2u5dB7HjqbEJvZNwuXPw2lbwQlHuHjXmkUlcnyVy2dVONvZ21n58KJvM3zU9Tr_tbcBlfMv0o&sz=w788-h1020&ats=1525461032309&rm=163284152d35db71&zw&atsh=1)  
+  
+  
+![](https://ci5.googleusercontent.com/proxy/5jEId6tOOEWlQmnlNvCJstdK52V28VHwLO3YxE_scTtGSE15WceGqhpe__GMpkvUmVH1awGEC5ufE1OECI219QXMa1bdBYsK5S4TEpRRQUFCTKAH1odGldNgCOzBLB600JsX0FA2af1knflrSCcHZLRqmOiUC4LfuvXJ9A61IX-Tf53SSnr0-MwR9CnJXeMdTm10oM12EnDM0XFiNzv4u7ZUPQWPwyQ2KACNUIvMt8jyzNGCQObMYUUwTPUOZz5OxKT_EQOYgoWWnFjvXOw4psEvt60q92wKN2t_RZVYXE76-HgCCdRogTStZwTGR5hpkxlCfKzlJIW-Gl8nZelolmhMYm0Gtv5ciwvKLZcHpkKii87okZ9xhMOSbdR6KsEbiIE9hxpQSrJCwnCMnvNQ-kMKmXQxRc_PWmhAZbS0yaf7kI1V5xz9psYkX2KHfPqPaktxiDJ8Lb0OgkG7jWdvpxfadrKaug=s0-d-e1-ft#https://mail.google.com/mail/u/0/?ui=2&ik=e3441f477d&view=fimg&th=163284152d35db71&attid=0.3&disp=emb&realattid=ii_jgr2xpzj6_16327fbb59428c6a&attbid=ANGjdJ-fsEh4fcYkSeGSlKXATqSqqHCSPUz9QxVhgwS-WnYOv2aeWu7mQm3Bz_B-2D2aeJZGP9-X83wl2wnOPuw-q7tP58l_HT1eVPboXC_JicHkMDL0n53JLLF-4Tg&sz=w788-h1020&ats=1525461032309&rm=163284152d35db71&zw&atsh=1)  
+  
+![](https://ci5.googleusercontent.com/proxy/RgliyHqOCDjh1oYMYdS7KwMITQHGSRlouaDGaukSE6ZZGPGd08_4Px7EjIRO92i8ogm3FIdmJ-Z4m29amTS9SELO2hcQN-tjq-84RWPLc5TbMUsFYbAkXakLF9e6nbYqUhva6DaDyropfF5bIWKegXp3WnS9z2hhcTfW2xvT3kfKM1BUvNYp46RunfYsYbsbL9nYmaSJeFNLx3IBjPc-K3vXuVj9cUggeidZpFan3RefKj1cM3ojd3h-mxQtoGe41LLcm6oQoT4Rd3Q1Kgt6X1Gn9QiTjdSA_qInlxQPY0izutDbUsws2hRxFl3odGXQ1s7RfHl6aOo9RxmY1YoTbJy8lgZlEMgdO6mrQkSmw20ntVRLRu83QbLawhEN-Qvw5i9ZcJAQ1Vzy5hZadVaoswY553cP6LhQvp2rFLG6a2nXTYM6HyI4s-YKcSCIEPCsPcCKOdnXYzQDiGBW4VNnYuEuaOKOgg=s0-d-e1-ft#https://mail.google.com/mail/u/0/?ui=2&ik=e3441f477d&view=fimg&th=163284152d35db71&attid=0.6&disp=emb&realattid=ii_jgr2xwk67_16327fbd4033784e&attbid=ANGjdJ88c5zeLi_C88hg66jmeNkzvaUGCT7tzHOM84lnXrnG7dOp7xvIZxxN0lbemWiXn5N__3Yh0AkOm0OU7d_7foPqm4DiU5IjXdFH6bXX7cJm2AopOUWFiuxbUCY&sz=w788-h1020&ats=1525461032309&rm=163284152d35db71&zw&atsh=1)
+
+  
+
+
+

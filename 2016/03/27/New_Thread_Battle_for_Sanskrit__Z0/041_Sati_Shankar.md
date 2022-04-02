@@ -1,0 +1,42 @@
++++
+title = "041 Sati Shankar"
+
++++
+[[Sati Shankar	2016-04-05, 00:14:17 [Source](https://groups.google.com/g/bvparishat/c/Z0v53lMq9rY)]]
+
+
+
+Since the whole issue is circling around the claims and interpretations of Indian scriptures and texts in an improper manner by Prof Sheldon Pollock, related to astitva of and adhikAra on our socio-cultural tradition, it should concern all, the people of our country,and they must be explained in lay man's terms what is it all [about.as](http://about.as),simply as possible. It is pertinent to quote here Prof N. Kazanas who summarises his opinion on Prof Pollock as, "There are many O'Flaherty's and Pollock's in this world who, instead of promoting goodness and unity, promote division and hatred....Just as nobody talks of O'Flaherty's aberrations now, so in a year or two nobody will give a thought to Mr. Pollock. There will appear others, of course. Human ignorance and vanity will not cease." ( <http://bharatkalyan97.blogspot.in/2016/03/on-sheldon-pollock-who-thinks-pedantry.html?q=N+Kazanas> )
+
+The efforts to counter the damage, both ongoing and forthcoming, seem to be scattered in pieces need to be put together otherwise we will be failing in generation much warranted awareness and movement. Target operators have to mobilized. For, we need to deal with the people who can be categorized in to three.
+
+Category One, the common man in India who neither knows about the indology nor has to do any thing with, nor Sanskrit, nor Sanskritists, nor tradition.. but has a conscience for his country,knows his Indian society he lives in, its beliefs, its pride and thinks for its preservation. He is least interested in who wrote what and who funded whom and what are the possible repercussions on Indian society, its culture, its tradition. The need is to make the common man aware of the situation properly in lay man's language and style, for example, [Defense, Strategy & The Battle For Sanskrit of Rajiv Malhotra,](http://gsf-astitva.blogspot.in/2016/03/defense-strategy-battle-for-sanskrit-of.html)
+
+  
+
+Category Two, comprises professionals, academicians, , scholars, writers, journalists and other brain workers.People in this category,can be divided in to two groups based on their traits, say Category Two Group I and Category Two, Group II.
+
+Category Two Group I comprises professionals, academicians, , scholars, writers, journalists and other brain workers, are those who are thoroughly career conscious and always keep it above everything including their conscience for motherland. Under the compulsion of success at any cost, not only they exhibit full conformity to their to their Western masters, in speech, in writing and by standing behind them, adopting ideologies or under pressure of publish or perish they accept academic current and the dominating trends which satisfies their objective. As this group remains under pressure of acceptability by the peer. This also includes those who support opponent by other means like campaign and financial support. We can not expect much from them but only send our best wishes.
+
+  
+
+The members of the Category Two, Group II are the same but with a significant difference, they have , along with all their professional aims, not killed their national conscience and not forgotten their responsibilities towatd the nation.This makes them most valuable with respect to countering the opponent's movement we are aiming at. And it is this group, to which Mr. Rajiv Malhotra's "The Battle for Sanskrit"
+is directed.While working hard and diligently to guide and equip this segment, the author cautions,"Each purva-paksa opponent must be studied individually. We cannot apply some generic knowledge we have of other persons. Pollock is very clearly not an orientalist in the earlier sense of that term." The author provides very clearly the main tenets, methodologies and schematic conceptualization techniques, adopted by Polllock. He shows way how Pollock has developed his theories and interpretation of paramarthika and vyavaharika,Literarization,aestheticization of power which Pollock borrowed borrows an influential theory developed by Walter Benjamin (1892-1940) and the Frankfurt School of Marxism, to interpret the role played by aesthetics in the rise of the Nazis. He goes on explaining how has Pollock developed his own patent variety of Political Philology and based on that Pollock "advocates with evangelical zeal is that Indian texts must be studied not for spiritual/sacred content, but for the purpose of finding the social exploitation and political domination contained in them." Mr Malhotra while showing the way to purvs paksha cautions the reader of the "Liberation philology, the other side of the coin to political philology" and tells how Polloch works on both sides," He often contradicts himself, not only between one publication of his and another, but also within the same publication. He often plays both sides of an issue to seem balanced. But eventually, he quietly assumes one of the two postures without having explained why it is superior to the other." ...."In other words, one cannot do purva-paksha of Pollock surgically by random citation; it must be done holistically. His work is far too multilayered, full of western idioms, and at times written using codes his fellow scholars are meant to understand."
+
+He suggests, "To really understand Pollock, it is also important to study the three layers of American culture, " "At the top is the deceptive pop culture layer in which everything is nice, all a part of the so-called global village".Then is the ," middle layer where the institutions lie. The institutions provide continuity, infrastructure assets, and a robust transparency. " and at the lowest layer of the three layers is what I term the deep culture. Here, the notion of American Exceptionalism is well established and protected. This deep layer comes out publicly and violently at times of duress – such as the xenophobia of white males that Donald Trump has tapped into.The veneer of civility is very thin indeed."Finally, he says "One must know all this as a unified whole, in dynamic equilibrium. In a nutshell, I am saying that the methodology to do purva-paksha of Pollock has to be multi-disciplinary".
+
+  
+
+But since there is no water tight compartmentalization between the Groups of Category Two, we often encounter, certain clashes due to personality differences, ego or difference in exposure to modern weaponry available to us due to ideological, scientific and technological developments. A recent controversy came up with a review of Mr. Malhotra's The Defense of Sanskrit by Dr. Ganesh. Nearly half of the review was dedicated to Mr Malhotra. Without really recognising the fact that it is ultimately a fight to retain our adhikAra on our own texts , scriptures and tradition, review made some comments which were remote to the basic objective that the Defense of sanskrit aims at. The clarifications given by Mr.Malhotra in this part shows clearly how mistaken were the comments. In an annexure to the review, Dr. Ganesh got posted some more remarks on mantra. He wrote for use of "mantra" by Mr. Malhotra to be ,"This is at best a theological argument of a mimAmsaka."
+which when analysed based on our traditional connotation, turned to be "clearly a mistake as we commit most often, especially when we approach our texts through translations by Western authors or by Indians who have /had their Gurus in them."
+
+The second part of the same annexure said, "If mantras truly had healing effects, why did our tradition evolve from the daiva-vyapasraya of the Atharva Veda (which believed that certain chants and spells could cure a disease) into the yukti-vyapasraya of Ayurveda (which relies completely on observation; it doesn’t speak about even the healing effects of yogasanas, let alone mantra)? In fact, Vagbhata laughs at people who seek proof for medicines in mantras." Not less that a dozen Counter examples of which were readily available from the texts of authorities like Charak and Sushrut. <https://groups.google.com/forum/?utm_source=digest&utm_medium=email/#!topic/bvparishat/e4i_jHilp98>
+
+This is cited here just to show how those who can and must join hands to counter forces inimical to our texts and traditions take a different direction. Time has come for all the three categories to join hands, and fight for our own astitva, adhikAra , pride and self respect.
+
+Shubham Bhavatu
+
+Sati Shankar
+
+
+

@@ -1,0 +1,24 @@
++++
+title = "001 Hnbhat B.R."
+
++++
+[[Hnbhat B.R.	2018-04-03, 09:21:58 [Source](https://groups.google.com/g/bvparishat/c/8QMOtrIe9Es)]]
+
+
+
+सहयज्ञाःप्रजाः सृष्ट्वा पुरोवाच प्रजापतिः । अनेन प्रसविष्यध्वमेष वोऽस्त्विष्टकामधुक् ॥३।१० ॥  
+
+  
+
+
+
+
+
+> --  
+> You received this message because you are subscribed to the Google > Groups "भारतीयविद्वत्परिषत्" group.  
+> To unsubscribe from this group and stop receiving emails from it, send > an email to [bvparishat+unsubscribe@googlegroups.com]().  
+> To post to this group, send email to [bvpar...@googlegroups.com]().  
+> For more options, visit <https://groups.google.com/d/optout>.  
+
+  
+

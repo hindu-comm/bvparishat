@@ -1,0 +1,57 @@
++++
+title = "002 Nagaraj Paturi"
+
++++
+[[Nagaraj Paturi	2017-01-09, 07:00:16 [Source](https://groups.google.com/g/bvparishat/c/mPALdld_EFg)]]
+
+
+
+Richer than the previous ones in terms of S'abdaalankaaras , vital concepts such as svadharma, creative samaasaghaTana such as adharmavinmaNDalamauliratnam with a punch of humor and so on.
+
+  
+
+पांडित्यरासिक्यतपःप्रसिद्धम् पक्वम् फलम् जीवितकालसाध्यम्
+
+  
+
+
+
+
+
+> --  
+> You received this message because you are subscribed to the Google > Groups "भारतीयविद्वत्परिषत्" group.  
+> To unsubscribe from this group and stop receiving emails from it, send > an email to [bvparishat+unsubscribe@googlegroups.com]().  
+> To post to this group, send email to [bvpar...@googlegroups.com]().  
+> For more options, visit <https://groups.google.com/d/optout>.  
+
+  
+  
+
+  
+
+--  
+
+Nagaraj Paturi
+
+
+
+Hyderabad, Telangana, INDIA.
+
+
+
+Former Senior Professor of Cultural Studies
+
+
+
+FLAME School of Communication and FLAME School ofLiberal Education,
+
+
+
+(Pune, Maharashtra,INDIA)
+
+
+
+
+
+
+

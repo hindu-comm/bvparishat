@@ -1,0 +1,23 @@
++++
+title = "003 Ajit Gargeshwari"
+
++++
+[[Ajit Gargeshwari	2014-11-22, 22:06:30 [Source](https://groups.google.com/g/bvparishat/c/w4EOIVpwktI)]]
+
+
+
+========Mod note==========  
+
+Dear Prof Panda,  
+  
+Please change your display name it cannot be [9703436596](tel:(970)%20343-6596) Thanks  
+
+  
+
+Regards  
+Ajit Gargeshwari  
+न जायते म्रियते वा कदाचिन्नायं भूत्वा भविता वा न भूयः।  
+अजो नित्यः शाश्वतोऽयं पुराणो न हन्यते हन्यमाने शरीरे।।2.20।।
+
+
+

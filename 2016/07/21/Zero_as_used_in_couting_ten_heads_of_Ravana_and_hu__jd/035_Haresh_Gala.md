@@ -1,0 +1,216 @@
++++
+title = "035 Haresh Gala"
+
++++
+[[Haresh Gala	2016-12-03, 20:10:00 [Source](https://groups.google.com/g/bvparishat/c/jdzwV53_3fg)]]
+
+
+
+Namaste,  
+
+  
+
+In Ancient time , Different symbols were used for 10, 20, 30, 100 etc. Infact Base was 20 , so we find different names from 1 to twenty.  
+  
+
+Here attached Images for Numbers used. In Western Kshatrap & Gupta Period dates were written like 121 as symbol 100, 20 , 1  
+
+189 will be 100, 80 , 9 etc  
+  
+  
+
+  
+
+
+
+
+
+
+
+> 
+> > 
+> > 
+> > 
+> > > 
+> > > > Theatre pics > > > > 
+> > > > 
+> > > > 
+> > > > 
+> > > >   
+> > > > 
+> > > > 
+> > > > 
+> > > > 
+> > > > 
+> > 
+> > 
+> > 
+> > 
+
+
+
+
+
+
+
+> 
+> > 
+> > 
+> > 
+> > > 
+> > > > 
+> > > > 
+> > > > 
+> > > > > 
+> > > > > > 
+> > > > > > 
+> > > > > > 
+> > > > > > > 
+> > > > > > > > Sharing snapshots > > > > > > > > 
+> > > > > > > > 
+> > > > > > > > 
+> > > > > > > > 
+> > > > > > > >   
+> > > > > > > > 
+> > > > > > > > 
+> > > > > > > > 
+> > > > > > > > 
+> > > > > > > > 
+> > > > > > 
+> > > > > > 
+> > > > > > 
+> > > > > > 
+> > > > 
+> > > > 
+> > > > 
+> > > > 
+> > 
+> > 
+> > 
+> > 
+
+
+
+
+
+
+
+
+
+
+
+> 
+> > 
+> > 
+> > 
+> > > 
+> > > > 
+> > > > 
+> > > > 
+> > > > > 
+> > > > > > 
+> > > > > > 
+> > > > > > 
+> > > > > > > 
+> > > > > > > > 
+> > > > > > > > 
+> > > > > > > > 
+> > > > > > > > > 
+> > > > > > > > > > 
+> > > > > > > > > > 
+> > > > > > > > > > 
+> > > > > > > > > > > 
+> > > > > > > > > > > > 
+> > > > > > > > > > > > To unsubscribe from this group and stop receiving emails > > > > > > from it, send an email to > > > > > > [bvparishat+unsubscribe@googlegroups.com](). > > > > > > > > > > > > 
+> > > > > > > > > > > > 
+> > > > > > > > > > 
+> > > > > > > > > > 
+> > > > > > > > > > 
+> > > > > > > > > > 
+> > > > > > > > 
+> > > > > > > > 
+> > > > > > > > 
+> > > > > > > > 
+> > > > > > 
+> > > > > > 
+> > > > > > 
+> > > > > > 
+> > > > 
+> > > > 
+> > > > 
+> > > > 
+> > 
+> > 
+> > 
+> > 
+
+
+
+
+
+
+
+
+
+
+
+
+
+> 
+> > 
+> > 
+> > 
+> > > 
+> > > > 
+> > > > To unsubscribe from this group and stop receiving emails from it, > > send an email to [bvparishat+unsubscribe@googlegroups.com](). > > > > 
+> > > > 
+> > 
+> > 
+> > 
+> > 
+
+> 
+> > 
+> > 
+> > 
+> > > 
+> > > > 
+> > > >   
+> > To post to this group, send email to > > [bvpar...@googlegroups.com]().  
+> > For more options, visit <https://groups.google.com/d/optout>.  
+> > > > 
+> > > > 
+> > 
+> > 
+> > 
+> > 
+
+> 
+> > 
+> > 
+> > 
+> > > 
+> > > > 
+> > > > 
+> > > > 
+> > 
+> >   
+> > 
+> > --  
+> > 
+> > 
+
+> 
+> > 
+> > You received this message because you are subscribed to the Google > Groups "भारतीयविद्वत्परिषत्" group.  
+> > 
+> > 
+
+> 
+> > 
+> > To unsubscribe from this group and stop receiving emails from it, send > an email to [bvparishat+unsubscribe@googlegroups.com](). >
+> 
+> > 
+
+
+

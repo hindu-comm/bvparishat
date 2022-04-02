@@ -1,0 +1,43 @@
++++
+title = "001 Jsr Prasad"
+
++++
+[[Jsr Prasad	2017-01-16, 15:10:04 [Source](https://groups.google.com/g/bvparishat/c/gGeFe_6W5uY)]]
+
+
+
+Dear Prof. Sundareswaran Ji,  
+  
+
+Congratulations to you and your Department for organizing a great event. I hope, you may try to publish these lectures by great scholars in monographs/books, as you do usually.  
+  
+
+Regards,  
+
+Prasad  
+
+  
+
+
+
+
+
+> --  
+> You received this message because you are subscribed to the Google > Groups "भारतीयविद्वत्परिषत्" group.  
+> To unsubscribe from this group and stop receiving emails from it, send > an email to [bvparishat+unsubscribe@googlegroups.com]().  
+> To post to this group, send email to [bvpar...@googlegroups.com]().  
+> For more options, visit <https://groups.google.com/d/optout>.  
+
+  
+  
+  
+--  
+
+Dr. J.S.R. Anjaneya Prasad,  
+Associate Professor & Head, Dept. of Sanskrit Studies,  
+School of Humanities, University of Hyderabad,  
+Prof. C.R. Rao Road, Hyderabad - 500 046  
+Tel: [+91-40-2313 3803](tel:+91%2040%202313%203803)  
+
+*।। पुरुषोऽयं लोकसम्मितः ।।*  
+

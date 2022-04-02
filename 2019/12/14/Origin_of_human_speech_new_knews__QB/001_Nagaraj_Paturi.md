@@ -1,0 +1,26 @@
++++
+title = "001 Nagaraj Paturi"
+
++++
+[[Nagaraj Paturi	2019-12-14, 00:05:27 [Source](https://groups.google.com/g/bvparishat/c/QBQ-C94K7FY)]]
+
+
+
+Correction in title:
+
+  
+
+New news.
+
+  
+
+On Sat, Dec 14, 2019, 12:04 AM Nagaraj Paturi \<[nagara...@gmail.com]()\> wrote:  
+
+> 
+> > <https://www.news18.com/amp/news/buzz/human-speech-evolved-way-earlier-than-years-of-scientific-studies-showed-2423745.html> >
+> 
+> > --  
+> You received this message because you are subscribed to the Google > Groups "भारतीयविद्वत्परिषत्" group.  
+> To unsubscribe from this group and stop receiving emails from it, send > an email to [bvparishat+...@googlegroups.com]().  
+> To view this discussion on the web visit > [https://groups.google.com/d/msgid/bvparishat/CAJGj9eYFy4TrzFdd%2BOk1OyetxL9t5kRqZC3bDYp4%3DTXM8F_JFw%40mail.gmail.com](https://groups.google.com/d/msgid/bvparishat/CAJGj9eYFy4TrzFdd%2BOk1OyetxL9t5kRqZC3bDYp4%3DTXM8F_JFw%40mail.gmail.com?utm_medium=email&utm_source=footer).  
+

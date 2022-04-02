@@ -1,0 +1,187 @@
++++
+title = "011 Shrivathsa B"
+
++++
+[[Shrivathsa B	2017-03-03, 11:44:55 [Source](https://groups.google.com/g/bvparishat/c/vsClljAYSd4)]]
+
+
+
+hariH OM,
+
+  
+
+Vyoma Linguistic Labs, a non profit organisation working for samskRRitam has published bhagavadgiita chanted by vyaakaraNa vidvaan Nagendra Pavan. You can hear the audio sample here:
+
+<http://cdbaby.com/cd/learnsamskritpronunciati>  
+
+Note that the rates for India are different. There are also bulk discounts available. You can think of this as a gifting option.
+
+  
+
+I am not formally associated with the above organization, nor do I have any commercial interest in its promotion.
+
+  
+
+svasti,
+
+   bhavaaniibhaaratii jayatetamaam,
+
+                          shrivathsa.
+
+  
+
+On 02-Mar-2017 20:48, "'Ashok Gudsoorkar' via भारतीयविद्वत्परिषत्" \<[bvpar...@googlegroups.com]()\> wrote:  
+
+> 
+> > 
+> > Thank you Sri Shankarji for providing us nice rendering of > ShrimadBhagavatam !! >
+> 
+> > 
+> >   
+> > 
+> > 
+> > I am looking for a nice audio rendering of ShrimadBhagavadgita- all 18 > Chapters.  Shall be grateful for any suggestion/advice. Regards. > -Ashok Gudsoorkar, Hyd. >
+> 
+> > 
+> >   
+> Sent from my iPhone >
+> 
+> > 
+> >   
+> On 28-Feb-2017, at 11:49, 'shankara' via भारतीयविद्वत्परिषत् > \<[bvpar...@googlegroups.com]()\> wrote:  
+>   
+> > 
+> > 
+
+> 
+> > > 
+> > > >  > style="color:#000;background-color:#fff;font-family:Courier New,courier,monaco,monospace,sans-serif;font-size:16px"> > > > > Namaste, > > > > 
+> > > >   
+> > > > 
+> > > > 
+> > > > Audio files of Srimad Bhagavatam all 12 skandhas chanted by Manda > > Kulkarni are available at the following link. > > > > 
+> > > > 
+> > > > <https://archive.org/details/Shrimad-Bhagawat-Samhita-sanskrit/00Mahatmya/BH-Mahatmya-01.mp3>  
+> > > > 
+> > > > 
+> > > > 
+> > > > 
+> > > > 
+> > > > regards  
+> > shankara > > > > 
+> > > > 
+> > > >   
+> >   
+> > > > 
+> > > > 
+> > > > 
+> > 
+
+> 
+> > > 
+> > > >  > style="color:#000;background-color:#fff;font-family:Courier New,courier,monaco,monospace,sans-serif;font-size:16px"> > > > > 
+> > > >  > style="font-family:Courier New,courier,monaco,monospace,sans-serif;font-size:16px"> > > > >  > style="font-family:HelveticaNeue,Helvetica Neue,Helvetica,Arial,Lucida Grande,Sans-Serif;font-size:16px"> > > > > 
+> > > > ------------------------------------------------------------------------ > > > > **From:** V Subrahmanian \<[v.subra...@gmail.com]()\>  
+> > **To:** BHARATIYA VIDVAT \<[bvpar...@googlegroups.com]()\>  
+> > **Sent:** Tuesday, 28 February 2017 3:16 PM  
+> > **Subject:** {भारतीयविद्वत्परिषत्} Srimadbhāgavatam Chanting audio  
+> > > > 
+> > > > 
+> > > > 
+> > > > 
+> > > > 
+> > > > 
+> > 
+
+> 
+> > > 
+> > > >  > style="color:#000;background-color:#fff;font-family:Courier New,courier,monaco,monospace,sans-serif;font-size:16px"> > > > > 
+> > > >  > style="font-family:Courier New,courier,monaco,monospace,sans-serif;font-size:16px"> > > > >  > style="font-family:HelveticaNeue,Helvetica Neue,Helvetica,Arial,Lucida Grande,Sans-Serif;font-size:16px"> > > > > 
+> > > > 
+> > > > 
+> > > > Namaste > > > > 
+> > > >   
+> > > > 
+> > > > 
+> > > > I am looking for buying or downloading any good rendering of the > > entire Srimadbhāgavatam in chanting mode, without any commentary. > > This is for a person who wants to learn the pārāyaṇam of the text. > > As a recorded resource will be helpful in this endeavor the request > > is made here to share details of any such audio. Preference is for a > > rendering by South Indians, male or female.
+> > > > 
+> > > > 
+> > > >   
+> > > > 
+> > > > 
+> > > > warm regards > > > > 
+> > > > 
+> > > > subrahmanian.v 
+> > > > 
+> > > > 
+> > > > 
+> > > > 
+> > > > --  
+> > You received this message because you are subscribed to the Google > > Groups "भारतीयविद्वत्परिषत्" group.  
+> > > > 
+> > > > 
+> > > > 
+> > > > 
+> > > > 
+> > > > 
+> > > > 
+> > 
+
+> 
+> > > 
+> > > >  > style="color:#000;background-color:#fff;font-family:Courier New,courier,monaco,monospace,sans-serif;font-size:16px"> > > > > 
+> > > >  > style="font-family:Courier New,courier,monaco,monospace,sans-serif;font-size:16px"> > > > >  > style="font-family:HelveticaNeue,Helvetica Neue,Helvetica,Arial,Lucida Grande,Sans-Serif;font-size:16px"> > > > > 
+> > > > 
+> > > > To unsubscribe from this group and stop receiving emails from it, > > send an email to [bvparishat+unsubscribe@googlegroups.com](). > > > > 
+> > > > 
+> > > > 
+> > > > 
+> > > > 
+> > > > 
+> > > > 
+> > 
+
+> 
+> > > 
+> > > >  > style="color:#000;background-color:#fff;font-family:Courier New,courier,monaco,monospace,sans-serif;font-size:16px"> > > > > 
+> > > >  > style="font-family:Courier New,courier,monaco,monospace,sans-serif;font-size:16px"> > > > >  > style="font-family:HelveticaNeue,Helvetica Neue,Helvetica,Arial,Lucida Grande,Sans-Serif;font-size:16px"> > > > > 
+> > > > 
+> > > >   
+> > To post to this group, send email to > > [bvpar...@googlegroups.com]().  
+> > For more options, visit <https://groups.google.com/d/optout>.  
+> > > > 
+> > > > 
+> > > > 
+> > > > 
+> > > > 
+> > > > 
+> > > > 
+> > 
+
+> 
+> > > 
+> > > > --  
+> > You received this message because you are subscribed to the Google > > Groups "भारतीयविद्वत्परिषत्" group.  
+> > > > 
+> > 
+
+> 
+> > > 
+> > > > To unsubscribe from this group and stop receiving emails from it, > > send an email to [bvparishat+unsubscribe@googlegroups.com](). > > > > 
+> > 
+
+> 
+> > > 
+> > > >   
+> > To post to this group, send email to > > [bvpar...@googlegroups.com]().  
+> > For more options, visit <https://groups.google.com/d/optout>.  
+> > > > 
+> > 
+
+> --  
+> You received this message because you are subscribed to the Google > Groups "भारतीयविद्वत्परिषत्" group.  
+
+> To unsubscribe from this group and stop receiving emails from it, send > an email to [bvparishat+unsubscribe@googlegroups.com]().
+
+
+

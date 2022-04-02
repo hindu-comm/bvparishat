@@ -1,0 +1,76 @@
++++
+title = "002 Madhav Deshpande"
+
++++
+[[Madhav Deshpande	2018-06-04, 04:29:12 [Source](https://groups.google.com/g/bvparishat/c/e8nlfchAQrk)]]
+
+
+
+अनुगृहीतोऽस्मि, श्रीमन्तो विष्णुनम्पूतिरिमहोदया: ।
+
+  
+
+माधव देशपांडे
+
+  
+
+Madhav M. Deshpande
+
+Professor Emeritus
+
+Sanskrit and Linguistics
+
+University of Michigan
+
+\[Residence: Campbell, California\]
+
+  
+
+
+
+
+
+
+
+
+
+> 
+> > 
+> > 
+> > > To unsubscribe from this group and stop receiving emails from it, > > send an email to [bvparishat+unsubscribe@googlegroups.com](). >
+> 
+> > 
+> > 
+
+> 
+> > 
+> > 
+> > >   
+> > To post to this group, send email to > > [bvpar...@googlegroups.com]().  
+> > For more options, visit <https://groups.google.com/d/optout>.  
+> > 
+> > 
+> > 
+
+> 
+> > 
+> > 
+> > 
+> > --  
+> > 
+> > 
+
+> 
+> > 
+> > You received this message because you are subscribed to the Google > Groups "भारतीयविद्वत्परिषत्" group.  
+> > 
+> > 
+
+> 
+> > 
+> > To unsubscribe from this group and stop receiving emails from it, send > an email to [bvparishat+unsubscribe@googlegroups.com](). >
+> 
+> > 
+
+
+

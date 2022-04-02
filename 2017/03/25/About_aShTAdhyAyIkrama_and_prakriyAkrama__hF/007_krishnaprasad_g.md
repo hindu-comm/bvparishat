@@ -1,0 +1,56 @@
++++
+title = "007 krishnaprasad g"
+
++++
+[[krishnaprasad g	2017-03-26, 15:53:59 [Source](https://groups.google.com/g/bvparishat/c/hFFyYeKkSm4)]]
+
+
+
+The Same question I have asked five years back.  
+  
+<https://groups.google.com/forum/#!topic/bvparishat/oB3e1yK3odE>  
+  
+
+  
+
+  
+
+  
+
+  
+
+
+
+
+
+> 
+> > 
+> > --  
+> > 
+> > 
+
+> 
+> > 
+> > You received this message because you are subscribed to the Google > Groups "भारतीयविद्वत्परिषत्" group.  
+> To unsubscribe from this group and stop receiving emails from it, send > an email to [bvparishat+unsubscribe@googlegroups.com]().  
+> To post to this group, send email to [bvpar...@googlegroups.com]().  
+> For more options, visit <https://groups.google.com/d/optout>.  
+> > 
+> > 
+
+> 
+> > 
+> > 
+> > 
+
+  
+  
+  
+--  
+
+Happy families are all alike; every unhappy family is unhappy in its own way  
+  
+  
+  
+KP
+

@@ -1,0 +1,35 @@
++++
+title = "007 Nagaraj Paturi"
+
++++
+[[Nagaraj Paturi	2021-06-04, 08:58:13 [Source](https://groups.google.com/g/bvparishat/c/RQjoV55N68A)]]
+
+
+
+Ok. ungratefulness.
+
+  
+
+Corrected version :
+
+  
+
+This seems to be a sarcastic lamentation from a teacher and /or doctor about theungratefulness they received from people.
+
+  
+
+  
+
+
+
+
+
+> --  
+
+> You received this message because you are subscribed to the Google > Groups "भारतीयविद्वत्परिषत्" group.  
+> To unsubscribe from this group and stop receiving emails from it, send > an email to [bvparishat+...@googlegroups.com]().  
+
+> To view this discussion on the web visit > [https://groups.google.com/d/msgid/bvparishat/fe0e1990-ab4b-4895-8d9f-b218c308d23en%40googlegroups.com](https://groups.google.com/d/msgid/bvparishat/fe0e1990-ab4b-4895-8d9f-b218c308d23en%40googlegroups.com?utm_medium=email&utm_source=footer).  
+
+
+

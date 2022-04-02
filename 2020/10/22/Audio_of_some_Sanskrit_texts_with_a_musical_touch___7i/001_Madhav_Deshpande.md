@@ -1,0 +1,37 @@
++++
+title = "001 Madhav Deshpande"
+
++++
+[[Madhav Deshpande	2020-10-22, 17:53:58 [Source](https://groups.google.com/g/bvparishat/c/7iZkshsyBaU)]]
+
+
+
+It was good to hear it as I just woke up. Congratulations, Dr. Meera.
+
+  
+
+Madhav M. Deshpande
+
+Professor Emeritus, Sanskrit and Linguistics
+
+University of Michigan, Ann Arbor, Michigan, USA
+
+Senior Fellow, Oxford Center for Hindu Studies  
+
+  
+
+\[Residence: Campbell, California, USA\]  
+
+  
+
+  
+
+
+
+
+
+> --  
+> You received this message because you are subscribed to the Google > Groups "भारतीयविद्वत्परिषत्" group.  
+> To unsubscribe from this group and stop receiving emails from it, send > an email to [bvparishat+...@googlegroups.com]().  
+> To view this discussion on the web visit > [https://groups.google.com/d/msgid/bvparishat/CAN47gm6x%3DAgM0Tjhm%2BFFFztbMN98y0u39UJPn%2BoaBpwFrBUd4A%40mail.gmail.com](https://groups.google.com/d/msgid/bvparishat/CAN47gm6x%3DAgM0Tjhm%2BFFFztbMN98y0u39UJPn%2BoaBpwFrBUd4A%40mail.gmail.com?utm_medium=email&utm_source=footer).  
+

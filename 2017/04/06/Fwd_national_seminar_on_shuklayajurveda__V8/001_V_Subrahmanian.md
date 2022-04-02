@@ -1,0 +1,113 @@
++++
+title = "001 V Subrahmanian"
+
++++
+[[V Subrahmanian	2017-04-06, 22:42:36 [Source](https://groups.google.com/g/bvparishat/c/V8LqEN-38QE)]]
+
+
+
+On Thu, Apr 6, 2017 at 6:59 PM, Veeranarayana Pandurangi \<[veer...@gmail.com]()\> wrote:  
+
+> 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > Dear All >
+> 
+> > 
+> > Hereby I am attaching printed invitation card and program details of > two day national seminar on Shuklayajurveda on 18-19 april 2017 >
+> 
+> > 
+> > 
+> > 
+> > 
+> > 
+
+  
+
+It appears that the attachment is only of the program for the 18th. The details for the 19th need to be given. At least in my computer only the 18th program is showing.
+
+  
+
+regards
+
+subrahmanian.v 
+
+> 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > .
+> > 
+> > 
+> > I hope you will enjoy the sessions of seminar in the pleasant > environment of Bengaluru.
+> > 
+> > 
+> > This seminar is coincidentally held simultaneously with annual > Ramanavami music festival of chamrajpet which you can enjoy in Fort > High school premises just behind the KSU campus.
+> > 
+> > 
+> >   
+> > 
+> > 
+> > pl. visit for program schedule of Ramaseva Mandali music Concert
+> > 
+> > 
+> > <http://ramanavami.org/schedule.php>
+> > 
+> > 
+> >   
+> > 
+> > 
+> >   
+> > 
+> > 
+> > 
+> > 
+> > 
+> > --  
+> > 
+> > 
+> > 
+> > Veeranarayana N.K. Pandurangi  
+> Director of Academics  
+> Dean, Faculty of Vedantas >
+> 
+> > 
+> > Karnakata Samskrita University,
+> > 
+> > Pampa Mahakavi Road,  
+> Chamarajpet, Bengaluru. >
+> 
+> >   
+> > 
+> > 
+> >   
+> अथ चेत्त्वमिमं धर्म्यं संग्रामं न करिष्यसि। ततः स्वधर्मं कीर्तिं च > हित्वा पापमवाप्स्यसि।।  
+> तस्मादुत्तिष्ठ कौन्तेय युद्धाय कृतनिश्चयः। निराशीर्निर्ममो भूत्वा > युध्यस्व विगतज्वरः।। (भ.गी.) >
+> 
+> > 
+> >   
+> > 
+> > 
+> > [http://www.ksu.ac.in](http://www.ksu.ac.in/) >
+> 
+> > 
+> > [http://www.ksu.ac.in/en/dr-veeranarayana-n-k-pandurangi/](https://groups.google.com/forum/?hl=en&fromgroups#!forum/bvparishat)  
+> <https://groups.google.com/forum/?hl=en&fromgroups#!forum/bvparishat> >
+> 
+> > 
+> > 
+> > 
+
+> --  
+> You received this message because you are subscribed to the Google > Groups "भारतीयविद्वत्परिषत्" group.  
+> To unsubscribe from this group and stop receiving emails from it, send > an email to [bvparishat+unsubscribe@googlegroups.com]().  
+> To post to this group, send email to [bvpar...@googlegroups.com]().  
+> For more options, visit <https://groups.google.com/d/optout>.  
+
+  
+

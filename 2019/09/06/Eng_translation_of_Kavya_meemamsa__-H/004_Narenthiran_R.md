@@ -1,0 +1,29 @@
++++
+title = "004 Narenthiran R"
+
++++
+[[Narenthiran R	2019-09-06, 12:50:29 [Source](https://groups.google.com/g/bvparishat/c/-HQFhoOZDdY)]]
+
+
+
+I think this book is still available.. pl. check.  
+
+|          |     |                                                                                                                                                                                                                                                                                                                                                                          |     | |----------|-----|--------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------|-----| | Title    |    | [Kāvyami̅māṃsā of Rājaśekhara : original text in Sanskrit and translation with explanatory notes](http://117.211.161.54:8080/opac/html/Browse?brwbuttonid=B&link=T%4b%c4%81%76%79%61%6d%69%cc%85%6d%c4%81%6d%cc%a3%73%c4%81%20%6f%66%20%52%c4%81%6a%61%73%cd%81%65%6b%68%61%72%61%20%3a%20%6f%72%69%67%69%6e%61%6c%20%74%65%78%74%20%69%6e%20%53%61%6e%73%6b%72%69%74%20) |     | | Stmt Res |    | by Sadhana Parashar                                                                                                                                                                                                                                                                                                                                                      |     | | Main Ent |    | [Rājaśekhara](http://117.211.161.54:8080/opac/html/Browse?brwbuttonid=B&link=A%52%c4%81%6a%61%73%cd%81%65%6b%68%61%72%61)                                                                                                                                                                                                                                                |     | | Add Ent  |    | [Parashar, Sadhana](http://117.211.161.54:8080/opac/html/Browse?brwbuttonid=B&link=A%50%61%72%61%73%68%61%72%2c%20%53%61%64%68%61%6e%61)                                                                                                                                                                                                                                 |     | | Pub Plc  |    | New Delhi                                                                                                                                                                                                                                                                                                                                                                |     | | Publ.    |    | D.K. Printworld                                                                                                                                                                                                                                                                                                                                                          |     | | Publ Dt. |    | 2000                                                                                                                                                                                                                                                                                                                                                                     |     | | Phy Desc |    | xiv, 335 p.: 1 folded map; 25 cm.                                                                                                                                                                                                                                                                                                                                        |     | | Notes    |    | Bibliography : p. 327-335                                                                                                                                                                                                                                                                                                                                                |     | | ISBN     |    | 81-246-0140-2                                                                                                                                                                                                                                                                                                                                                            |     | | Parl Ttl |    | Kāvyami̅māṃsā                                                                                                                                                                                                                                                                                                                                                             |     |
+
+Thanks  
+
+**Dr. R. Narenthiran**  
+<http://www.ifpindia.org/narenthiran-r>  
+Librarian  
+French Institute of Pondicherry  
+11, Saint Louis Street P.B.33,  
+Pondicherry 605001  
+Ph: 0091 - [413 - 2231661](tel:(413)%20223-1661)  
+Mobile : 9442934327  
+
+
+
+
+
+> To view this discussion on the web visit > [https://groups.google.com/d/msgid/bvparishat/CAJGj9eaWg-koidWRZ4aNG1%3DGGnUfSUda9U5Ep%3D0aLS-p%2B-P3Xw%40mail.gmail.com](https://groups.google.com/d/msgid/bvparishat/CAJGj9eaWg-koidWRZ4aNG1%3DGGnUfSUda9U5Ep%3D0aLS-p%2B-P3Xw%40mail.gmail.com?utm_medium=email&utm_source=footer).  
+

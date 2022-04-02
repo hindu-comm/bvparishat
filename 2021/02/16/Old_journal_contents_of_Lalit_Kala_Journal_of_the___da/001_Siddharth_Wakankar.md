@@ -1,0 +1,23 @@
++++
+title = "001 Siddharth Wakankar"
+
++++
+[[Siddharth Wakankar	2021-02-16, 14:35:17 [Source](https://groups.google.com/g/bvparishat/c/davePnOlL88)]]
+
+
+
+Very good endeavour to enlighten the scholars on the old treasure.
+
+Many thanks.
+
+  
+
+
+
+
+
+> --  
+> You received this message because you are subscribed to the Google > Groups "भारतीयविद्वत्परिषत्" group.  
+> To unsubscribe from this group and stop receiving emails from it, send > an email to [bvparishat+...@googlegroups.com]().  
+> To view this discussion on the web visit > [https://groups.google.com/d/msgid/bvparishat/d4f80aea-4477-882b-e382-e71e52d98dcb%40ifpindia.org](https://groups.google.com/d/msgid/bvparishat/d4f80aea-4477-882b-e382-e71e52d98dcb%40ifpindia.org?utm_medium=email&utm_source=footer).  
+

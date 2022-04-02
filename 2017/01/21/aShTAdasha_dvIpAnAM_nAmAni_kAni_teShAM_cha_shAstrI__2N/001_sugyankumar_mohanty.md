@@ -1,0 +1,27 @@
++++
+title = "001 sugyankumar mohanty"
+
++++
+[[sugyankumar mohanty	2017-01-21, 20:10:41 [Source](https://groups.google.com/g/bvparishat/c/2N-UrkQo0LQ)]]
+
+
+
+मान्या विद्वांसः!
+
+काचिदस्ति जिज्ञासा मे -
+
+अष्टादशद्वीपानां नामानि कानि? तेषां च शास्त्रीयाधारः कः?
+
+सप्तद्वीपास्तु - अधोनिरूपितानुसारमस्ति।
+
+1.  [जंबूद्वी](http://bharatdiscovery.org/india/%E0%A4%9C%E0%A4%82%E0%A4%AC%E0%A5%82_%E0%A4%A6%E0%A5%8D%E0%A4%B5%E0%A5%80%E0%A4%AA "जंबू द्वीप")पः
+
+1.  [प्लक्षद्वी](http://bharatdiscovery.org/india/%E0%A4%AA%E0%A5%8D%E0%A4%B2%E0%A4%95%E0%A5%8D%E0%A4%B7_%E0%A4%A6%E0%A5%8D%E0%A4%B5%E0%A5%80%E0%A4%AA "प्लक्ष द्वीप")पः 2.  [शाल्मलद्वी](http://bharatdiscovery.org/india/%E0%A4%B6%E0%A4%BE%E0%A4%B2%E0%A5%8D%E0%A4%AE%E0%A4%B2_%E0%A4%A6%E0%A5%8D%E0%A4%B5%E0%A5%80%E0%A4%AA "शाल्मल द्वीप")पः 3.  [कुशद्वी](http://bharatdiscovery.org/india/%E0%A4%95%E0%A5%81%E0%A4%B6_%E0%A4%A6%E0%A5%8D%E0%A4%B5%E0%A5%80%E0%A4%AA "कुश द्वीप")पः 4.  [क्रौंचद्वी](http://bharatdiscovery.org/india/%E0%A4%95%E0%A5%8D%E0%A4%B0%E0%A5%8C%E0%A4%82%E0%A4%9A_%E0%A4%A6%E0%A5%8D%E0%A4%B5%E0%A5%80%E0%A4%AA "क्रौंच द्वीप")पः
+
+1.  [शाक
+    द्वी](http://bharatdiscovery.org/india/%E0%A4%B6%E0%A4%BE%E0%A4%95_%E0%A4%A6%E0%A5%8D%E0%A4%B5%E0%A5%80%E0%A4%AA "शाक द्वीप")पः
+
+1.  [पुष्करद्वी](http://bharatdiscovery.org/india/%E0%A4%AA%E0%A5%81%E0%A4%B7%E0%A5%8D%E0%A4%95%E0%A4%B0_%E0%A4%A6%E0%A5%8D%E0%A4%B5%E0%A5%80%E0%A4%AA "पुष्कर द्वीप")पः
+
+
+

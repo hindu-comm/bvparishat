@@ -1,0 +1,59 @@
++++
+title = "016 Shrinivasa Varakhedi"
+
++++
+[[Shrinivasa Varakhedi	2017-01-01, 18:59:31 [Source](https://groups.google.com/g/bvparishat/c/F14iCmSoL5k)]]
+
+
+
+This new thread is closed. Please do not respond on this please.
+
+  
+
+On behalf of BVP management
+
+Shrinivasa varakhedi
+
+  
+
+
+
+
+
+
+
+
+
+
+
+> 
+> > 
+> > > To unsubscribe from this group and stop receiving emails from it, > > send an email to [bvparishat+...@googlegroups.com](). >
+> 
+> > 
+
+> 
+> > 
+> > >   
+> >   
+> >   
+> > To post to this group, send email to > > [bvpar...@googlegroups.com]().  
+> >   
+> >   
+> > For more options, visit <https://groups.google.com/d/optout>.  
+> >   
+> >   
+> > 
+> > 
+
+> --  
+>   
+>   
+> You received this message because you are subscribed to the Google > Groups "भारतीयविद्वत्परिषत्" group.  
+>   
+>   
+
+> To unsubscribe from this group and stop receiving emails from it, send > an email to [bvparishat+...@googlegroups.com]().
+
+
+

@@ -1,0 +1,39 @@
++++
+title = "003 Madhav Deshpande"
+
++++
+[[Madhav Deshpande	2021-06-01, 18:15:45 [Source](https://groups.google.com/g/bvparishat/c/6P52zT50sZc)]]
+
+
+
+To add to such accounts, here is one. When I was editing the Śaunakīya Caturādhyāyikā and collecting its manuscripts, I was informed of a manuscript in Ujjain at the Oriental Manuscript Library. I made a special trip to Ujjain to see and study the manuscript. It looked like the manuscript had suffered serious water damage. Upon inquiry, the librarian S.L. Katre had written down an account that after the death of the pandit who possessed this and several other manuscripts, his widow threw the whole collection into a well. Someone then recovered these manuscripts from that well. Such stories are probably not rare.
+
+  
+
+Madhav M. Deshpande
+
+Professor Emeritus, Sanskrit and Linguistics
+
+University of Michigan, Ann Arbor, Michigan, USA
+
+Senior Fellow, Oxford Center for Hindu Studies  
+
+Adjunct Professor, National Institute of Advanced Studies, Bangalore, India
+
+  
+
+\[Residence: Campbell, California, USA\]  
+
+  
+
+  
+
+
+
+
+
+> --  
+> You received this message because you are subscribed to the Google > Groups "भारतीयविद्वत्परिषत्" group.  
+> To unsubscribe from this group and stop receiving emails from it, send > an email to [bvparishat+...@googlegroups.com]().  
+> To view this discussion on the web visit > [https://groups.google.com/d/msgid/bvparishat/CAFY6qgGBF2JwfCwMVk_p9pAT7Y11pEbGr%2Bsyqa%3Df0TfvmsDONg%40mail.gmail.com](https://groups.google.com/d/msgid/bvparishat/CAFY6qgGBF2JwfCwMVk_p9pAT7Y11pEbGr%2Bsyqa%3Df0TfvmsDONg%40mail.gmail.com?utm_medium=email&utm_source=footer).  
+

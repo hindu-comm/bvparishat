@@ -1,0 +1,103 @@
++++
+title = "009 विश्वासो वासुकेयः"
+
++++
+[[विश्वासो वासुकेयः	2020-05-16, 14:45:24 [Source](https://groups.google.com/g/bvparishat/c/l9wYVeHFVGc)]]
+
+
+
+  
+  
+On Friday, May 8, 2020 at 2:21:22 PM UTC+5:30, Nagaraj Paturi wrote:
+
+> 
+> > I asked my son who is good at python to work on it. I will soon share > the progress / update.
+> > 
+
+  
+
+There is this too - <https://groups.google.com/forum/#!topic/sanskrit-programmers/ayw9X_8p82c> - no cost involved.  
+
+
+
+>   
+> > 
+> > 
+
+
+
+
+
+
+
+
+
+
+
+
+
+> 
+> > > 
+> > > > > 
+> > > > > > 
+> > > > > >  > > style="font-family:&quot;Helvetica Neue&quot;,Helvetica,Arial,sans-serif;font-size:13px;color:rgb(38,40,42)"> > > > > > > 
+> > > > > > 
+> > > > > > To unsubscribe from this group and stop receiving emails from it, > > > send an email to bvpar...@googlegroups.com. > > > > > > 
+> > > > > > 
+> > > > > > 
+> > > > > > 
+> > > > > > 
+> > > > 
+> > 
+
+> 
+> > > 
+> > > > > 
+> > > > > > 
+> > > > > >  > > style="font-family:&quot;Helvetica Neue&quot;,Helvetica,Arial,sans-serif;font-size:13px;color:rgb(38,40,42)"> > > > > > > 
+> > > > > > 
+> > > > > >   
+> > > To view this discussion on the web visit > > > [https://groups.google.com/d/msgid/bvparishat/CAJH_SbwXJ%2BkF0AM3A462iwH4b55EOgMLNzPiTaz4UY-pdZHZ3Q%40mail.gmail.com](https://groups.google.com/d/msgid/bvparishat/CAJH_SbwXJ%2BkF0AM3A462iwH4b55EOgMLNzPiTaz4UY-pdZHZ3Q%40mail.gmail.com?utm_medium=email&utm_source=footer).  
+> > > > > > 
+> > > > > > 
+> > > > > > 
+> > > > > > 
+> > > > > > 
+> > > > 
+> > 
+
+> 
+> > > 
+> > > > > --  
+> > > You received this message because you are subscribed to the Google > > > Groups "भारतीयविद्वत्परिषत्" group.  
+> > > > 
+> > 
+
+> 
+> > > 
+> > > > > To unsubscribe from this group and stop receiving emails from it, > > > send an email to bvpar...@googlegroups.com. > > > > 
+> > 
+
+> 
+> > > 
+> > > > >   
+> > > To view this discussion on the web visit > > > [https://groups.google.com/d/msgid/bvparishat/1958690605.1585884.1588784130846%40mail.yahoo.com](https://groups.google.com/d/msgid/bvparishat/1958690605.1585884.1588784130846%40mail.yahoo.com?utm_medium=email&utm_source=footer).  
+> > > > 
+> > 
+
+> 
+> > > --  
+> > You received this message because you are subscribed to the Google > > Groups "भारतीयविद्वत्परिषत्" group.  
+> > 
+
+> 
+> > > To unsubscribe from this group and stop receiving emails from it, > > send an email to bvpar...@googlegroups.com. >
+> 
+
+> 
+> > >   
+> > To view this discussion on the web visit > > [https://groups.google.com/d/msgid/bvparishat/CAJH_SbzsbxjhCjRDJkvN7u9kvXv8-jheEyF3SdCSyi-hs44NUw%40mail.gmail.com](https://groups.google.com/d/msgid/bvparishat/CAJH_SbzsbxjhCjRDJkvN7u9kvXv8-jheEyF3SdCSyi-hs44NUw%40mail.gmail.com?utm_medium=email&utm_source=footer).  
+> > 
+
+
+

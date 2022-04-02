@@ -1,0 +1,31 @@
++++
+title = "004 Ram Sury"
+
++++
+[[Ram Sury	2021-06-16, 05:14:25 [Source](https://groups.google.com/g/bvparishat/c/dOFBurlsJDA)]]
+
+
+
+Dear Dr. Deshpande,  
+  
+I don't think it would be a valid observation that the form 'Brahma-' is unique as an anomaly in Pāli, even if it be argued that it is a resanskritized word there - for the simple reason that there are so many such anomalies in Pāli if you consider its entire lexical inventory and all those so-called anomalies are so varied that they can't all be swept under the Sanskritization carpet. Sometimes the anomalies make the phonetic structure of the word even more phonetically complex than the Sanskrit form itself.  
+  
+Consider the following words:  
+  
+1. Pūrvāhna becomes pubbaṇha in Pāli - ahna does not become anna, it retains its complex-syllable despite the metathesis - clearly showing that the metathesis is not to simplify the word phonetically so it is not moving in the direction of phonetic simplification (prākṛtization) but in fact adds to the earlier complexity of the syllable by changing the n to ṇ (which as you may know is an indicator in Pāli that a 'r' or other complex-syllable is hiding somewhere in the written word and that 'r' needs to be reintroduced in actual speech). Why would this be the case? It is because if you look at early Brāhmi script, it was very difficult to write complex syllables, in the early era of writing complex ligatures were easily prone to be misinterpreted or misread, and r was of frequent occurrence in many of those complex syllables so they decided on several conventions to simplify the phonetic structure of the language to make it capable of being easily written in that script but still wanted to give an indication that the word when spoken or read must be pronounced with an 'r' (or ṛ sometimes) in it. In Aśokan edicts you can see a similar convention in the word kiṭa and kaṭa (in both cases, the ṭ i.e. the introduction of retroflexion shows that the kaṭa/kiṭa is to be read as kṛta. This can be seen in plenty of words in the Pāli canon as well, otherwise the introduction of the retroflexion and the non-simplification of the complex-syllable in pubbaṇha (despite the metathesis) cannot be explained. Similarly again paṇha (\<praśna) has a retroflexed ṇ which shows a missing r sound that needs to be reintroduced when it is read out. Similarly see paṭicca-samuppāda where the retroflexed ṭ indicates a hidden r in the word that needs restoration. This happens in many many words that you can find all over the Pāli canon. Is every instance of this otherwise unexpected retroflexion explainable as an anomaly? Or do you agree with me that this is a pattern that needs a regular and logical explanation?  
+  
+2. The word vṛkṣa becomes rukkha in Pāli instead of the expected \*vakkha/\*vukkha. Why does it start with an R if the ṛ (in vṛkṣa) already had vanished in actual speech of the people?  
+  
+3. Ashoka only ever uses asti and never atthi (unlike Pāli) regardless of the edict's location - and even in the Pāli canon the -st- cluster is found in several words. Similarly Aśoka only uses puna but never pana. Again he uses bramhaṇa-samaṇānaṃ in Girnār but in Uttarakhand (Kālsi) it becomes baṃbhaṇa. Again he always uses dhaṃma rather than dhamma (to show that there is a 'r' that has changed in writing to an anusvāra and should therefore be read as r in speech). Again he only ever uses -amhi and never -asmin but the Pāli canon uses both indiscriminately (and even regularly shows that the word ends with a consonant 'n' in actual speech by replacing the final n with a ṃ - as in asmiṃ.) I can draw your attention to hundreds of these and other anomalies that cannot be explained with existing theories.  
+  
+4. There is a word dbādasa occuring twice in the Girnār edicts of Aśoka which shows that the v had been replaced by a b but does not show the expected phonetic simplification of the first syllable but rather retains the Old-Indic form dvā (but for the b). Also this cluster recurs again in the edicts in the phrase "dve cikīcha". Similarly also in the Pāli canon there are so many words with the -dv- cluster that appear as is and not simplified (as in dvādasa and its compounds, dvāra and its compounds, bhāradvāja and related words, to cite three prominent examples). There are other such clusters such as -ṇḍ-, -tr-, -sm-, -br-, -dr- etc that are regularly retained as-is from Old-Indic in several words in different syllable positions in the word. Of course there are several others clusters as well that are attested in the Pāli canon but I am leaving them out here. How would you explain these clusters? It is not just Brahma that has the br- in it for it to be called an anomaly. It needs some occam's razor.  
+  
+I think I know how to explain them all succintly but you may not agree - The retention of specific clusters was dictated by how easy it was to write it in early Brāhmī, and in fact most of Pāli's & Ashoka's phonetic innovations are not about standardization/simplification of the phonemes of the spoken Old-Indic language per-se, but rather primarily the simplification of the orthographic representation of the Old-Indic words to make them easier to write in early Brāhmī). The spoken language was still close to or the same as Old-Indo-Aryan and both the Pali canon and Ashokan edicts were written from the very start using the same script so they both show the same types of innovations but dont agree completely with one another. The Ashokan language evolved as the Brāhmī script evolved in sophistication in later centuries to phonetically become capable of representing the spoken language (Old-Indic) with full phonetic accuracy. This is why we see the edicts become more and more sanskritic - not as it is popularly assumed in sensationalist theories like "How the Brahmins won", "How Sanskrit won" etc. Therefore there is no need to assume too many unresolved anomalies and paradoxes in the linguistic domain, almost all of them can be resolved when we bring the early scripts into consideration.  
+  
+Regards,  
+Ramakrishnan Suryanarayanan
+
+
+
+\> To view this discussion on the web visit <https://groups.google.com/d/msgid/bvparishat/CAB3-dzcP-Yp8iXWAtzwNYOcQtsUSpu%3D3tDdA%3DngQtoiMp3vU_A%40mail.gmail.com>.
+

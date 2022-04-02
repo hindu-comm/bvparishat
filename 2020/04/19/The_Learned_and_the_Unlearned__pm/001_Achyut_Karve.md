@@ -1,0 +1,31 @@
++++
+title = "001 Achyut Karve"
+
++++
+[[Achyut Karve	2020-04-19, 10:34:48 [Source](https://groups.google.com/g/bvparishat/c/pmVZhwC6zFU)]]
+
+
+
+Dear Viswas,
+
+  
+
+That will squarely depend on how one looks into one self.
+
+  
+
+With regards,
+
+Achyut Karve.
+
+  
+
+
+
+
+
+> --  
+> You received this message because you are subscribed to the Google > Groups "भारतीयविद्वत्परिषत्" group.  
+> To unsubscribe from this group and stop receiving emails from it, send > an email to [bvparishat+...@googlegroups.com]().  
+> To view this discussion on the web visit > [https://groups.google.com/d/msgid/bvparishat/CAB3-dzekB_HLi0%2BUdi6Dfd4A5HuTPe940gC%2BzmfqbQABQYd5Hg%40mail.gmail.com](https://groups.google.com/d/msgid/bvparishat/CAB3-dzekB_HLi0%2BUdi6Dfd4A5HuTPe940gC%2BzmfqbQABQYd5Hg%40mail.gmail.com?utm_medium=email&utm_source=footer).  
+

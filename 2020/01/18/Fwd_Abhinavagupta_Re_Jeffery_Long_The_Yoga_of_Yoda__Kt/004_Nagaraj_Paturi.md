@@ -1,0 +1,24 @@
++++
+title = "004 Nagaraj Paturi"
+
++++
+[[Nagaraj Paturi	2020-01-22, 09:12:29 [Source](https://groups.google.com/g/bvparishat/c/Kt_VApDgfVM)]]
+
+
+
+True, Star Wars has been interpreted as having an underlying spiritual message. There have been books about the Christian dimension of the film;\[1\] others that explore it from a Buddhist point of view; and even a volume dedicated to studying Star Wars in terms of general philosophical principles. This latter book includes an essay on how Star Wars relates to Eastern wisdom. But even here, it goes too far East, looking at the science fiction/fantasy more from a Taoist perspective than from anything else.**No Hinduism. The question is, ‘Why?’ Why the great silence in terms of the Hindu religious tradition?**There have been a few articles on the subject over the years, but too few to fill the gap, especially since full-length books have appeared in relation to the world’s other great religions. It would be one thing if there were no connection, no overlap, in the themes and ideas conveyed in the epic film series and in the Hindu religion. But, as this book will show, there are multiple connections and overlap, so much so that**one could conceivably argue thatHinduism was a major influence – either directly or indirectly – in the making of Star Wars. And so, again, we must ask, ‘Why?’ The book you hold in your hands seeks to fill this curious lacuna.**\[pp. 17-18\]
+
+****
+
+**Early on in my life, as a teenager, I became a ‘Hindu’ monk. Gradually, I also became something of a Star Wars fan**, the first of the series’ films having been released when I was 22 years of age. In due course, I lost interest in Star Wars, and though I continued my passion for Hindu theology, I left the monastery to pursue the academic study of Vaishnava Hinduism. Thus, Vaishnavism is the branch of the religion that will inform most of this book, though we will also draw on other Hindu traditions. My focus on Vaishnavism is not merely personal. Vaishnavas make up nearly 70% of the Hindu world, thus accounting for hundreds of millions of people. More, since the vast majority of Hindus are Vaishnavas, looking at the Vaishnava tradition will afford an overall sense of what Hindus in general actually believe. Regarding my own connection to the tradition, let me be clear:**I still consider myself a practitioner, even though I am no longer a monk. And so when Rajiv Malhotra of the Infinity Foundation, a non-profit Hindu organisation, commissioned me to write a book on the parallels between Star Wars and the Hindu religion, I quickly became excited about the project.**\[pp. 35-36\]
+
+
+
+Or consider**Yoda, best of the great Jedi adepts in Star Wars, who is reminiscent of a yogi or a spiritual master, his teachings quoted almost verbatim from the Bhagavad-gita**. For example, Yoda tells Luke not to view him in terms of his size or outward appearance. He says that, in reality, we are ‘luminous beings’ – we are not the dull matter that we perceive with our crude senses. In short, he tells Luke that we are not our bodies but are instead a spiritual spark within.**This is one of the Gita’s central teachings: ‘That which pervades the entire body you should know to be indestructible. No one is able to destroy the imperishable soul.’**(2.17) And further: ‘As the sun alone illuminates the entire universe, so does the living entity, one within the body,**illuminate the entire body by consciousness**.’ (13.34) Notice that the Gita also refers to the ‘luminosity’ so clearly expressed by Yoda. Yoda also teaches Luke self-control, the importance of restraining the senses. Every Jedi, he says, must overcome desire and anger.**The Gita must have been Yoda’s sourcebook**: ‘A faithful man who is dedicated to the pursuit of knowledge – and who subdues his senses – is eligible to achieve such knowledge, and having achieved it he quickly attains the supreme spiritual peace.’ (4.39) Again, ‘By the time death arrives, one must be able to tolerate the urges of the material senses and overcome the force of desire and anger. If one does so, he will be well situated and able to leave his body without regret.’ (5.23) It is interesting, too, that Yoda locates the source of the Jedis’ strength: it is not accessed independently but rather it flows from ‘the Force’, which he essentially defines as the ground of all being. Indeed, Yoda tells Luke that all ability comes from the Force, but that this is especially true of the Jedis’ supernatural powers. The Gita also says that all power flows from the ‘Force’, i.e., the metaphysical source of all that is: ‘Of all that is material and all that is spiritual, know for certain that I am both the origin and dissolution. . . .Everything rests upon Me, as pearls are strung on a thread. . . .**I am the ability in man**.’ (7.6-8)\[pp. 41-42\]
+
+
+
+Rosen, Steven J. *The Jedi in the Lotus: Star Wars and the Hindu Tradition*. Arktos. Kindle Edition.
+
+
+

@@ -1,0 +1,15 @@
++++
+title = "026 Achyut Karve"
+
++++
+[[Achyut Karve	2017-06-04, 08:41:31 [Source](https://groups.google.com/g/bvparishat/c/mNNRNEEwO4w)]]
+
+
+
+A word carries sense and not meaning.
+
+Regards,  
+Achyut Karve.  
+
+
+

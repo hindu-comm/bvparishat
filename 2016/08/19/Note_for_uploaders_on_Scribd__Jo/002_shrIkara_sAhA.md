@@ -1,0 +1,98 @@
++++
+title = "002 శ్రీకర సాహా"
+
++++
+[[శ్రీకర సాహా	2016-08-19, 17:42:27 [Source](https://groups.google.com/g/bvparishat/c/JoQyTRF8fTQ)]]
+
+
+
+I cannot do it anymore on my account(that is,uploading a book to download a book for free). Please check it for yourself.  
+  
+
+I've been cut off from a vast source by this new policy.  
+  
+:(  
+
+  
+
+On 19 August 2016 at 17:40, Ajit Gargeshwari \<[ajit.gar...@gmail.com]()\> wrote:  
+
+> 
+> > 
+> > Thanks for updating Scribd policy. Are you a part of scribd team? I > am free member I can Upload and download from scribd site. Why are you > posting this here. If you have out of copy-write material under you > possession one can upload them anywhere. > [archive.org](http://archive.org) is an old stable site. >
+> Regards >
+> Ajit Gargeshwari >
+> 
+> >  style="border:none;border-top:solid #b5c4df 1.0pt;padding:3.0pt 0in 0in 0in"> >
+> **From:** [bvpar...@googlegroups.com]() > \[mailto:[bvparishat@googlegroups.com]()\] **On Behalf Of** S Saha  
+> **Sent:** Friday, August 19, 2016 5:31 PM  
+> **To:** भारतीयविद्वत्परिषत्  
+> **Subject:** {भारतीयविद्वत्परिषत्} Note for uploaders on Scribd >
+> 
+> > 
+> > 
+> > Scribd has now changed its policy for free accounts to download,since > August 11th. It basically does not allow them to download even if they > upload free documents,requiring them to enter their credit card > numbers for a 1 month free trial and charging $8.99 from then > onwards.  
+>   
+> Uploaders to Scribd,please note.(and upload to > [archive.org](http://archive.org) instead,that would be better for a > lot of us please).  
+>   
+> Saha. >
+> 
+> > 
+> > 
+
+> 
+> > 
+> > --  
+> You received this message because you are subscribed to the Google > Groups "भारतीयविद्वत्परिषत्" group.  
+> > 
+> > 
+
+> 
+> > 
+> > To unsubscribe from this group and stop receiving emails from it, send > an email to [bvparishat+unsubscribe@googlegroups.com](). >
+> 
+> > 
+
+> 
+> > 
+> >   
+> To post to this group, send email to [bvpar...@googlegroups.com]().  
+> For more options, visit <https://groups.google.com/d/optout>. >
+> 
+> > 
+
+> 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > --  
+> You received this message because you are subscribed to a topic in the > Google Groups "भारतीयविद्वत्परिषत्" group.  
+> To unsubscribe from this topic, visit > <https://groups.google.com/d/topic/bvparishat/JoQyTRF8fTQ/unsubscribe>.  
+> To unsubscribe from this group and all its topics, send an email to > [bvparishat+unsubscribe@googlegroups.com](). >
+> 
+> > 
+
+> 
+> > 
+> >   
+> To post to this group, send email to [bvpar...@googlegroups.com]().  
+> For more options, visit <https://groups.google.com/d/optout>.  
+> > 
+> > 
+
+> 
+> > 
+> > 
+> > 
+
+  
+  
+  
+--  
+
+Sreekar Saha  
+  
+
+

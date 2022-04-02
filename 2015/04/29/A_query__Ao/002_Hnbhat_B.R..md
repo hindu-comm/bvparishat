@@ -1,0 +1,78 @@
++++
+title = "002 Hnbhat B.R."
+
++++
+[[Hnbhat B.R.	2015-04-29, 19:57:57 [Source](https://groups.google.com/g/bvparishat/c/Ao5pwCrdAO8)]]
+
+
+
+2015-04-29 19:34 GMT+05:30 Hnbhat B.R. \<[hnbh...@gmail.com]()\>:  
+
+> 
+> > 
+> > 
+> > > 
+> > > >  > style="color:rgb(0,0,0);font-family:HelveticaNeue,'Helvetica Neue',Helvetica,Arial,'Lucida Grande',sans-serif;font-size:16px;background-color:rgb(255,255,255)"> > > > > 
+> > > > 
+> > > > 
+> > > > 
+> > > > Mano me nirlajjam tadapi visayebhyah sprihayati. > > > > 
+> > > > 
+> > > >   
+> > > > 
+> > > > 
+> > > > 
+> > 
+> > निर्लज्जं >
+> 
+> > 
+> > 
+> > 
+
+  
+
+Sorry. I pasted the above word included in the original verse found on the net.
+
+
+
+> 
+> > 
+> > 
+> > 
+> > 
+> > 
+
+> 
+> > 
+> > 
+> > 
+> > वपुः कुब्जीभूतं गतिरपि तथा यष्टिशरणा
+> > 
+> > 
+> > विशीर्णा दंतालिः श्रवणविकलं श्रोत्रयुगलम् ।
+> > 
+> > 
+> > शिरः शुक्लं चक्षुस्तिमिरपटलैरावृतमहो
+> > 
+> > 
+> > मनो मे निर्लज्जं तदपि विषयेभ्यः स्पृहयति ॥ >
+> 
+> > 
+> >   
+> > 
+> > 
+> > 
+> > 
+
+> 
+> > 
+> > 
+> > 
+> > I could not check with Bhartrihari's text. It is not available in the > gretil text. and another check.
+> > 
+> > 
+> > 
+> > 
+
+  
+

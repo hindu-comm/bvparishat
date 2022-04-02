@@ -1,0 +1,58 @@
++++
+title = "001 Shashi Bala"
+
++++
+[[Shashi Bala	2017-06-03, 14:56:36 [Source](https://groups.google.com/g/bvparishat/c/T8AWaIWapeM)]]
+
+
+
+Dear Mr. Pankaj Jain,
+
+  
+
+Congratulations for the Journal.
+
+  
+
+Here is an article for publication. Please acknowledge.
+
+  
+
+I will send you a scanned copy with diacritical marks.
+
+  
+
+Regards
+
+Shashibala
+
+  
+
+Prof. Dr. Shashibala
+
+Dean,
+
+Centre of Indology,
+
+Bharatiya Vidya Bhavan, Delhi Kendra,
+
+KG Marg,
+
+New Delhi 110001
+
+Ph. [+91.9811841183](tel:+91%2098118%2041183)
+
+  
+
+
+
+
+
+> --  
+> You received this message because you are subscribed to the Google > Groups "भारतीयविद्वत्परिषत्" group.  
+> To unsubscribe from this group and stop receiving emails from it, send > an email to [bvparishat+unsubscribe@googlegroups.com]().  
+> To post to this group, send email to [bvpar...@googlegroups.com]().  
+> For more options, visit <https://groups.google.com/d/optout>.  
+
+  
+

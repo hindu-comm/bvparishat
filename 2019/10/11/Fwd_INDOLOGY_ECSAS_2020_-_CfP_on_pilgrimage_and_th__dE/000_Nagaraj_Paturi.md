@@ -1,0 +1,116 @@
++++
+title = "000 Nagaraj Paturi"
+
++++
+[[Nagaraj Paturi	2019-10-11, 00:47:21 [Source](https://groups.google.com/g/bvparishat/c/dEyVqN1EG7o)]]
+
+
+
+  
+  
+
+---------- Forwarded message ---------  
+From: **Daniela De Simone via INDOLOGY** \<[indo...@list.indology.info]()\>  
+Date: Mon, Sep 9, 2019 at 2:38 AM  
+Subject: \[INDOLOGY\] ECSAS 2020 - CfP on pilgrimage and the arts in South Asia  
+To: Indology List \<[indo...@list.indology.info]()\>  
+
+  
+  
+
+### Dear All,
+
+  
+
+Please find below the Call for Papers (ends 17 November) for a panel on pilgrimage and the arts at ECSAS 2020, which will be held in Vienna, 29th July-1 August. Abstracts can besubmitted here:<https://ecsas2020.univie.ac.at/panels/ifjqn/>
+
+  
+
+### Yātrā: Rethinking Pilgrimage in South Asia through Art and Literature
+
+The conveners seek to explore new modes of thinking about pilgrimage in South Asia that stem from the analysis of artistic and literary evidence. The aim of this panel is to develop a multidisciplinary theoretical framework that applies a relational approach to the study of pilgrimage in South Asia.
+
+  
+
+**Convenors:**
+
+**· Daniela De Simone**The British Museum (London, United Kingdom)  
+**· Sara Mondini**University of Venice 'Ca' Foscari' (Venice, Italy)  
+**· Chiara Bellini**SOAS (London, United Kingdom)  
+
+  
+
+**Long Abstract**  
+
+The conveners seek to explore new modes of thinking about pilgrimage in South Asia that stem from the analysis of artistic and literary evidence. Pilgrimage art and literature are not merely genres, they provide contexts in which the pilgrims’ encounter with the divine, specific worship practices and ceremonies, and the art and architecture of pilgrimage sites are inextricably linked and simultaneously experienced.
+
+The aim of this panel is to lay the foundations for the development of a multidisciplinary theoretical framework that applies a relational approach to the study of pilgrimage in South Asia.
+
+For this purpose, the conveners have identified three interconnected themes:
+
+*Movements*. The pilgrim journey requires movements across physical and cultural landscapes that are key features of pilgrimage itself. Pilgrimage also involves ritual movements, such as ceremonies and processions.
+
+*Places and objects*. Pilgrimage sites historicise specific religious narratives, and may be sacred for other religious traditions (shared sites), or be places that were seized from another faith (contested sites). Moreover, pilgrimage has strong visual and material components as representations of the divine—either iconic or aniconic—are the main focus of sacred sites.
+
+*Hierophanies*. Pilgrimage fosters intimate and collective experiences of the sacred and/or the divine, which reinforce and reaffirm religious identities.
+
+We welcome submissions relating to any religious tradition or historical period in the fields of—but not limited to—anthropology, archaeology, art history, literature, and religious studies. The conveners plan to publish a selection of papers in an edited volume.
+
+  
+
+Best regards,
+
+  
+
+Daniela De Simone
+
+[](https://whav2.aussereurop.univie.ac.at/papersubmission/submit/ifjqn)
+
+  
+
+  
+
+  
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_  
+INDOLOGY mailing list  
+[INDO...@list.indology.info]()  
+[indolog...@list.indology.info]() (messages to the list's managing committee)  
+<http://listinfo.indology.info> (where you can change your list options or unsubscribe)  
+
+  
+
+  
+
+--  
+
+Nagaraj Paturi
+
+
+
+Hyderabad, Telangana, INDIA.
+
+  
+
+  
+
+Director, Inter-Gurukula-University Centre , Indic Academy
+
+BoS, MIT School of Vedic Sciences, Pune, Maharashtra
+
+BoS, Chinmaya Vishwavidyapeeth, Veliyanad, Kerala
+
+BoS Veda Vijnana Gurukula, Bengaluru.
+
+Former Senior Professor of Cultural Studies,
+
+FLAME School of Communication and FLAME School ofLiberal Education,
+
+(Pune, Maharashtra,INDIA)
+
+
+
+
+
+  
+

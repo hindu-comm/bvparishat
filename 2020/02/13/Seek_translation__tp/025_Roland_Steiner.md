@@ -1,0 +1,39 @@
++++
+title = "025 Roland Steiner"
+
++++
+[[Roland Steiner	2020-02-17, 23:21:12 [Source](https://groups.google.com/g/bvparishat/c/tp6dE0iGleA)]]
+
+
+
+  
+**Ad 1:** If you dish it out (“most perfectly inane comment“, “the ignorance continues”, “ridiculous”, “idiotic”, “incredible sums of money”) you have to be able to take it.  
+  
+My point that Dr Bagchee has no practical editing experience actually explains a lot, as anyone who has ever tried to edit a text is well aware. One vivid example should be given, which is in the easy grasp of the common man (*laukikadṛṣṭānta*), using the painful sting of ridicule, e.g.: Would you undergo surgery by someone who knows surgery only from textbooks? Would you board an aircraft whose pilot indulges in theories on steering planes, but lacks aviation training? Would you rely on a cricket coach who has passed the theoretical part only of his coach education, but never stood the test on the pitch with a bat in his own hand? How reliable is a textual critic who has no practical experience with manuscript sources or their palaeography and moreover lacks formal training in the language of the editions he is criticizing? Dr Bagchee does not seem to be a Sanskritist or an Indologist. If he is, he has kept it a secret and failed to show his expertise in primary Sanskrit sources in a verifiable, that is, in a published manner, so that the community of scholars may gain trust in his abilities. Merely criticizing a discipline does not yet make one an exponent of the same.  
+  
+  
+**Ad 2:** Dr Bagchee's usual distortion and misrepresentation of what is meant. Of course, the criticized person is not entitled to direct the criticism to any arbitrary topic (“the font or the cover of my book”). But the criticized person may insist that the fundamental criticism of the methodology of the criticized edition should also be demonstrable by the concrete outcome of the edited text. “After studying this edition and following the editors’ work for several years,” (Dr Bagchee) this should be possible. It is easy to cover something with wordy criticism without putting forward a single positive proposition oneself. And be it only by gauging the character of individual variants to be decided upon, by discussing their potential meanings and the respective consequences for poetic usage, philosophical positions, coherency and meaning, all of this line by line, word for word, from manuscripts handed down in various Indian scripts. Let Dr Bagchee prove his abilities by citing concrete examples from the *Mokṣopāya*, where he would decide otherwise and let him above all explain, how, and by the application of what method exactly, he would obtain a different text and why the editorial decisions he then takes could actually be claimed to be superior.  
+  
+**Ad 3:** Dr Bagchee wrote in his previous e-mail: “The edition lacks a stemma; the editors do not group mss. into*meliores*and*deteriores*much less attempt to arrive at a satisfactory genealogical classification.” The textual transmission of the available manuscripts simply does not allow this. It makes no sense to demand something that is impossible in a concrete case; unless it is shown that it is actually (and not only theoretically) possible.  
+  
+**Ad 4:** Once again: Dr Bagchee's usual distortion and misrepresentation of what is meant. What I have written *and* meant is, of course, that the reader has at his disposal the entire material which formed the basis for the editorial decisions; Dr Bagchee had denied this: “no user can be certain that any line of the text is attested in one of the witness”. It is absurd to conclude from this that the reader should have to undertake the “editor's job”. That a reader – especially an Indological one – has to deal with the content, form, and language of the text he is studying is – formulated as an accusation against the edition – revealing.  
+The expectation that the *Mokṣopāya* edition should enable a reader “to know at every passage of the text what stage of the tradition the editor is reconstructing” shows once again that Dr Bagchee is clueless about the matter. Apart from the actual textual tradition as it appears in the manuscripts, one should know, for example, how texts were physically handed down over the centuries in Kashmir, and one should also know something about the specific historical background of such textual traditions in Kashmir. Anything else is editorial *science fiction*.  
+  
+**Ad 5:** There are not only the volumes of the editions and their introductions, an accompanying annotated translation, a commentary volume and essays on the *Mokṣopāya*, but two monographs (Slaje 1994 and Hanneder 2006) in which the foundations for the edition were laid. The manuscript stock has constantly increased, but in principle, the basic assumptions of research on the *Mokṣopāya* have been confirmed by every single *Mokṣopāya* manuscript we know. Among other things, this text, as it has been handed down in the *Mokṣopāya* manuscripts, reveals an individual author and poet with an individual philosophy and an individual narrative style. The textual variants handed down in these *Mokṣopāya* manuscripts are not of such a nature that they call this thesis into question. This is also the view of the Kashmiri author Bhāskarakaṇṭha (mid-18th century), who, as is well known, comments on the *Mokṣopāya* in a version that principally confirms the *Mokṣopāya* tradition as it is documented in the edition. So the edited text version is not just a “favorite fantasy” of the editors. This can only be claimed by someone who persistently ignores the undeniable facts. Of course, one can find all this information in our various publications.  
+That we “know nothing” about this author – “he is, after all, anonymous” – is and remains clueless nonsense. We know him from his work, the *Mokṣopāya*; there could not be a better source. And that would be the case even if we had studied only one *Mokṣopāya* manuscript; our knowledge would then only be less and less precise.  
+  
+**Ad 6:** There would be a lot to say about “Lachmann”, but I would have to go very far afield. Dr Bagchee’s claim:  
+“no such thing exists (Kontaminationskritik is unknown in textual criticism; it is a bogus term invented by Paul Hacker’s student Srinivasa Ayya Srinivasan),”  
+does not become correct by constant repetition. I recommend reading the relevant works of Pasquali again.  
+  
+**Ad 7:** For factual reasons, the *Mokṣopāya* edition proceeds eclectically by methodically deciding, according to certain text-critical criteria, which handed-down variant is probably comparatively more original than the other handed-down variant(s) based on certain assumptions. This is trivial, because no matter which method is followed, this question always arises when real variants (usually two) exist. In addition, there is the method of conjectural criticism, which is used in the *Mokṣopāya* edition only as *ultima ratio*. But all this can only be understood if one is able to *interpret* the text handed down; decisions based on purely *formal* criteria are then no longer possible, at the latest. These decisions can always be criticized in any single case; the critical apparatus also serves this purpose.  
+  
+To avoid any misunderstandings in the beginning: Dr Bagchee's remark:
+“they have altered a great number of lines of the text to bring it more into line with their regnant ideology”, is a bold lie.  
+  
+  
+Last remark: I do not accept Dr Bagchee's killer argument: “We have demonstrated in this and that of our many books and essays that ...”. With respect: No, you have not.  
+It is to be expected that Dr Bagchee will reply to this e-mail with an even longer response, as he usually does. I will not react to it anymore, no matter how ignorant, provocative and distorting it may turn out to be.  
+  
+Roland Steiner  
+

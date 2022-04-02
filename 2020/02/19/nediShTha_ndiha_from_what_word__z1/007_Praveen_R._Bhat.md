@@ -1,0 +1,26 @@
++++
+title = "007 Praveen R. Bhat"
+
++++
+[[Praveen R. Bhat	2020-02-20, 09:24:06 [Source](https://groups.google.com/g/bvparishat/c/z19JtQ2r3kk)]]
+
+
+
+Namaste Subbuji,
+
+  
+
+Yes, due to pra Adesha, yet it's somewhat close to priya, but shreyAn, shreShTha, jyAyAn and jyeShTha are much diferent. shra replaces prashasya. jya replaces prashasya and vRddha.
+
+  
+
+
+
+
+
+> --  
+> You received this message because you are subscribed to the Google > Groups "भारतीयविद्वत्परिषत्" group.  
+> To unsubscribe from this group and stop receiving emails from it, send > an email to [bvparishat+...@googlegroups.com]().  
+
+> To view this discussion on the web visit > [https://groups.google.com/d/msgid/bvparishat/CAKk0Te3Sb%3Dw23Y2e7L8kJzeL9dzmSGTrzVHFzDy-asXgVEtyOg%40mail.gmail.com](https://groups.google.com/d/msgid/bvparishat/CAKk0Te3Sb%3Dw23Y2e7L8kJzeL9dzmSGTrzVHFzDy-asXgVEtyOg%40mail.gmail.com?utm_medium=email&utm_source=footer).  
+

@@ -1,0 +1,16 @@
++++
+title = "000 Madhav Deshpande"
+
++++
+[[Madhav Deshpande	2016-12-11, 20:01:51 [Source](https://groups.google.com/g/bvparishat/c/iCcngcRLYMg)]]
+
+
+
+Here is the next generation of Sanskrit-lovers in my family. My grandson, Meru (7 years old), is acting today as a Sanskrit-speaking crocodile in a drama organized by the Palo Alto (California) branch of Samskrita Bharati. I hopes he keeps up his interest. He can have my Sanskrit library.
+
+  
+
+Madhav Deshpande
+
+Ann Arbor, Michigan, USA
+

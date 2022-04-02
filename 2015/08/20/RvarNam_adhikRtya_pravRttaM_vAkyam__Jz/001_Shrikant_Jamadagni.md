@@ -1,0 +1,46 @@
++++
+title = "001 Shrikant Jamadagni"
+
++++
+[[Shrikant Jamadagni	2015-08-20, 15:58:01 [Source](https://groups.google.com/g/bvparishat/c/JzExA_3V7Xk)]]
+
+
+
+bhoh sharman!
+
+  
+
+sambhaaShaNa-sandeshe paThitametat smaraami\| kasyaaM sancikaayaam iti anveSTavyam\|
+
+  
+
+Shrikant Jamadagni  
+Bengaluru
+
+  
+
+  
+  
+
+On Thursday, 20 August 2015 1:13 PM, Shriramana Sharma \<[jama...@gmail.com]()\> wrote:  
+
+  
+  
+
+आर्याः,  
+  
+“नृसिंहाकृतिः अयम् ऋवर्णः” इति कुत्रापि महाभाष्ये पठितमिव स्मरामि । परमपि ऋऌक्-सूत्रे, एओङ्-सूत्रोत्तरे वर्णैकदेशग्रहणविचारे, तुल्यास्य-सूत्रे ऋऌवर्णयोः इति वार्तिके, कृपो रो लः इति सूत्रे, गुरोरनृतः इति सूत्रे, रषाभ्यां-सूत्रे ऋवर्णाच्च इति वार्तिके चेति बहुत्र अन्वेषणे कृते सत्यपि कुत्रत्यमिदं वाक्यम् इति उद्धर्तुम् अशक्तोऽस्मि । किमिदं वाक्यं ममैव मनसि प्रकल्पितम् उत वस्तुतो ग्रन्थारूढम् । बोधनेन उपकुर्वन्तु विद्वांस इति प्रार्थये ।  
+  
+
+--  
+निराशीर्निर्ममो भूत्वा युध्यस्व विगतज्वरः।। (भ.गी.)  
+---  
+You received this message because you are subscribed to the Google Groups "भारतीयविद्वत्परिषत्" group.  
+To unsubscribe from this group and stop receiving emails from it, send an email to [bvparishat+...@googlegroups.com]().  
+To post to this group, send email to [bvpar...@googlegroups.com]().  
+Visit this group at <http://groups.google.com/group/bvparishat>.  
+For more options, visit <https://groups.google.com/d/optout>.  
+
+  
+  
+

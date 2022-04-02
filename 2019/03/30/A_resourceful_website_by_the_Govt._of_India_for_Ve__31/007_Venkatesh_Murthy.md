@@ -1,0 +1,49 @@
++++
+title = "007 Venkatesh Murthy"
+
++++
+[[Venkatesh Murthy	2019-03-30, 20:26:40 [Source](https://groups.google.com/g/bvparishat/c/31ayNS3yL1E)]]
+
+
+
+Namaste
+
+  
+
+Why worry when there are very fine recordings in [archive.org](http://archive.org) -
+
+  
+
+<https://archive.org/details/VedicLinks-SriKrishnaYajurVedam-TaitiriyaSamhita>
+
+  
+
+Rudram perfect -
+
+  
+
+<https://youtu.be/vQjBQJqi0Ak>  
+
+  
+
+
+
+
+
+> --  
+
+> You received this message because you are subscribed to the Google > Groups "भारतीयविद्वत्परिषत्" group.  
+> To unsubscribe from this group and stop receiving emails from it, send > an email to [bvparishat+...@googlegroups.com]().  
+> To post to this group, send email to [bvpar...@googlegroups.com]().  
+> For more options, visit <https://groups.google.com/d/optout>.  
+
+  
+  
+--  
+
+Regards
+
+
+
+-Venkatesh
+

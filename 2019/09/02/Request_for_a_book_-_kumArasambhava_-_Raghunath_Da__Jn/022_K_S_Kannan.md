@@ -1,0 +1,44 @@
++++
+title = "022 K S Kannan"
+
++++
+[[K S Kannan	2019-09-04, 08:09:56 [Source](https://groups.google.com/g/bvparishat/c/JnI_jY6ud_g)]]
+
+
+
+Please send me a link.
+
+  
+
+KSKannan
+
+  
+
+  
+
+
+
+
+
+> To view this discussion on the web visit > [https://groups.google.com/d/msgid/bvparishat/CACPsRkangu2Z26FMbV5wen6zVGPM0NFE6R7%2Bf1agm0jO4Aixmg%40mail.gmail.com](https://groups.google.com/d/msgid/bvparishat/CACPsRkangu2Z26FMbV5wen6zVGPM0NFE6R7%2Bf1agm0jO4Aixmg%40mail.gmail.com?utm_medium=email&utm_source=footer).  
+
+  
+  
+--  
+
+Dr. K.S.Kannan D.Litt.
+
+Chair Professor, IIT-Madras.  
+
+Senior Fellow, ICSSR, New Delhi.  
+
+Academic Director, Swadeshi Indology.
+
+Nominated Member, IIAS, Shimla.
+
+Former Professor, CAHC, Jain University, Bangalore.
+
+Former Director, Karnataka Samskrit University, Bangalore.  
+
+Former Head, Dept. of Sanskrit, The National Colleges, Bangalore.  
+

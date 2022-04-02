@@ -1,0 +1,34 @@
++++
+title = "001 Siddharth Wakankar"
+
++++
+[[Siddharth Wakankar	2018-07-22, 06:09:46 [Source](https://groups.google.com/g/bvparishat/c/Odee66CHdrk)]]
+
+
+
+Did you read the following book.
+
+Agni Purana-A study by Dr.S.D Gyani.
+
+  
+
+Best luck.
+
+  
+
+Prof. Siddharth Y Wakankar.
+
+  
+
+On Sat 21 Jul, 2018, 7:16 PM debarshi adhikari, \<[debarshia...@gmail.com]()\> wrote:  
+
+> हे विद्वांसः! अस्मिन् विषये मार्गदर्शनं प्राप्नोमि चेत्याशाः।  
+> धन्यवादः।  
+>   
+
+> --  
+> You received this message because you are subscribed to the Google > Groups "भारतीयविद्वत्परिषत्" group.  
+> To unsubscribe from this group and stop receiving emails from it, send > an email to [bvparishat+...@googlegroups.com]().  
+> To post to this group, send email to [bvpar...@googlegroups.com]().  
+> For more options, visit <https://groups.google.com/d/optout>.  
+

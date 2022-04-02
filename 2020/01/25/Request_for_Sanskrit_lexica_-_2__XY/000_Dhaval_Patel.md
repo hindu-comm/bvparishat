@@ -1,0 +1,32 @@
++++
+title = "000 Dhaval Patel"
+
++++
+[[Dhaval Patel	2020-01-25, 18:36:56 [Source](https://groups.google.com/g/bvparishat/c/XYAC5fjlIvo)]]
+
+
+
+Respected Scholars,
+
+  
+
+I am in need of scanned copies of the following lexica. Any help on list or off list is appreciated.
+
+The names of works are taken from History of Indian Lexicography by Claus Vogel.
+
+  
+
+1\. Paramaanandiiyanaamamaalaa of Makarandadaasa.
+
+2\. SiddhashabdaarNava of Sahajakiirti.
+
+3\. Koshakalpararu of Vishvanaath. (Part 1 seems available on [archive.org](http://archive.org). Part 2 is not available)
+
+4\. Pancatattvaprakaasha of Veniidatta.
+
+5\. Shabdaratnaavalii of Mathuresh Vidyaalankaara.
+
+6\. Shivakosha of Shivadatta Mishra.
+
+  
+
