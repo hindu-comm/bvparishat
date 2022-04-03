@@ -1,0 +1,63 @@
++++
+title = "010 subrahmanyam korada"
+
++++
+[[subrahmanyam korada	2010-06-30, 08:46:52 [Source](https://groups.google.com/g/bvparishat/c/cCuhVw7541g)]]
+
+
+
+namo vidvadbhyah
+
+
+
+Here is Paniniyasiksa --
+
+
+
+udAtte nisAdagAndhArAvanudAtta rsabhadhaivatau I svaritaprabhavAhyete sadjamadhyamapancamAh II
+
+
+
+Therefore UdAtta, anudAtta and svarita are the origin of Svaras .
+Amarasimha (sadjam mayUro vadati etc.)
+
+brings analogy of these svaras with  natural sounds just like Panini in SIksA takes up a Tigress carrying
+
+its cubs for explaning 'pronunciation' (vyAghrI yathA haret putrAn etc.) and in Vyakarana he takes up the
+
+crow of a cock to fix the time for hrasva , dIrgha and pluta (UkAlo'jhrasvadIrghaplutah Pa 1-2-27) .
+
+
+
+dhanyo'smi  
+  
+
+
+
+
+
+
+> 
+> > --  
+> > 
+
+> 
+> > अथ चेत्त्वमिमं धर्म्यं संग्रामं न करिष्यसि।  
+> ततः स्वधर्मं कीर्तिं च हित्वा पापमवाप्स्यसि।।  
+> तस्मादुत्तिष्ठ कौन्तेय युद्धाय कृतनिश्चयः।  
+> निराशीर्निर्ममो भूत्वा युध्यस्व विगतज्वरः।। (भ.गी.)  
+> > 
+
+> 
+> > 
+
+  
+  
+  
+--  
+Prof.Korada Subrahmanyam  
+Professor of Sanskrit,  
+CALTS,  
+University of Hyderabad 500046  
+Ph:09866110741(R),91-40-23010741,040-23133660(O)
+

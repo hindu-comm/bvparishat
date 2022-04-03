@@ -1,0 +1,28 @@
++++
+title = "002 Veeranarayana Pandurangi"
+
++++
+[[Veeranarayana Pandurangi	2012-12-28, 07:34:11 [Source](https://groups.google.com/g/bvparishat/c/1MgCedE0ovQ)]]
+
+
+
+namah  
+during 15 wsc newdelhi i met his son who was there for book sales and exhibition and got two books vivekanandavijayam and kathavallari. but there is no phone no in the book. however one can contact bvp nagpur members dr. madhusudan penna or dr dinakara marathe who can get phone nos if still needed.
+
+
+
+
+
+> --  
+> --  
+
+> निराशीर्निर्ममो भूत्वा युध्यस्व विगतज्वरः।। (भ.गी.)  
+> to subscribe go to the link below and put a request  
+> <https://groups.google.com/group/bvparishat/subscribe>  
+> To unsubscribe from this group, send email to  
+
+> [bvparishat+...@googlegroups.com]()  
+>   
+>   
+>   
+

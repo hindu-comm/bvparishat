@@ -1,0 +1,48 @@
++++
+title = "007 Abart Tandia"
+
++++
+[[Abart Tandia	2011-08-19, 21:39:21 [Source](https://groups.google.com/g/bvparishat/c/Pskm-G9Of7s)]]
+
+
+
+**Sir namaskar,  
+ this is written in oriya script and not in bengali.....  
+**  
+
+2011/8/19 sreegith tg \<[sre...@gmail.com]()\>
+
+
+
+  
+  
+  
+--  
+
+**
+
+*Abart Tandia           *ଆଵର୍ତ୍ତ ତାଣ୍ଡିଆ आवर्त ताण्डिआ  
+
+*(Ph.D), Research Scholar) ପିଏଚ୍.ଡି ଗଵେଷକ (ସଂସ୍କୃତ ଶୋଧାର୍ଥୀ) विद्यावारिधिः शोध छात्रः (गवेषकः)
+  
+Department of Sanskrit studies. ସଂସ୍କୃତ ଶିକ୍ଷା ଵିଭାଗ संस्कृत शिक्षा विभागः  
+University of Hyderabad           ହାଇଦ୍ରାଵାଦ ଵିଶ୍ଵଵିଦ୍ଯାଳଯ हैदरावाद विश्वविद्यालयः  
+Gochibowli-500046 (A.P) ଗୋଚିଵୋଲି - ୫୦୦୦୪୬ (ଆ. ପ୍ର)
+गोचिवोलि - ५०००४६ (आ. प्र)  
+India.                           
+ଭାରତ भारतदेशम्  
+*
+
+*[E-mail-ta...@gmail.com]()*
+
+*[E-mail-a...@gmail.com  
+]()*
+
+*[  
+]()*
+
+*  
+*
+
+  
+

@@ -1,0 +1,25 @@
++++
+title = "000 Veeranarayana Pandurangi"
+
++++
+[[Veeranarayana Pandurangi	2009-06-16, 00:55:46 [Source](https://groups.google.com/g/bvparishat/c/LpwBfBzpI28)]]
+
+
+
+Dear friends. I have a small query.
+
+howOut of africa (OOA) theory handles the problem of indo-european group of languages had the european group seperated from that one bound to travel to south asia. India and Europe share a language to some extant. it will be difficult if they seperated 30000 years ago.
+
+
+
+or is there any material on the OOA theory and Aryan invasion theory? OOA is seperately dealt by DNA specialists. but has anybody from our clan tried to do something?
+
+  
+
+  
+--  
+Veeranarayana N.K. Pandurangi  
+Head, Dept of Darshanas,  
+Yoganandacharya Bhavan,  
+Jagadguru Ramanandacharya Rajasthan Samskrita University, Madau, post Bhankrota, Jaipur, 302026.  
+

@@ -1,0 +1,90 @@
++++
+title = "000 Mrinal Kaul"
+
++++
+[[Mrinal Kaul	2010-05-10, 05:06:18 [Source](https://groups.google.com/g/bvparishat/c/UEVsmZ5fsi0)]]
+
+
+
+THE HARABHATTA SHASTRI
+
+INDOLOGICAL RESEARCH INSTITUTE
+
+  
+
+*# 37/4 Pandoka Colony*
+
+*Paloura, Jammu - 181121*
+
+*Jammu & Kashmir, India*
+
+*email: [harbhatt...@gmail.com]()*
+
+*  
+*
+
+*  
+*
+
+  
+
+**
+
+May 08, 2010
+
+  
+
+  
+
+Dear Friends,
+
+  
+
+We are planning to bring out a volume focusing the contribution of**Kashmirian Persianists** to the **Persian literature**. This volume, as we are planning it to be, will serve as an encyclopaedic manual on ***"Kashmiri Persian scholars and their Works"***. We invite an original and highly critical piece of essay written in English by you to be included in the volume. We also encourage you to circulate this letter amongst your colleagues who you think are capable of contributing to this volume. 
+
+  
+
+1. The formal deadline for submission is decided to be 31 December 2010. But since I am looking after the project, I would say that I am ready to offer any contributor ample time as far as the contribution is an original research article. The articles should certainly be unpublished.
+
+  
+
+2. There are no hard and fast rules about the length of contributions. We will not mind a hard core critically researched paper either of one page or hundred pages. I am just concerned about originality and quality.
+
+  
+
+3. All the papers should be submitted computer typewritten in a proper scholarly format with a detailed bibliography and a personal introduction of the contributor.
+
+  
+
+A PDF copy of the letter is enclosed herewith for the circulation in your department, university, institute or scholarly organization. I am quite hopeful that you will try to contribute for the said volume. Please do not hesitate to contact me if you have any questions. With my best regards.
+
+  
+
+Yours sincerely,
+
+  
+
+  
+
+(Mrinal Kaul)
+
+  
+
+A/p Concordia University
+
+Department of Religion, FA-101
+
+1455 de Maisonneuve Blvd West
+
+Montreal, Quebec
+
+CANADA H3G 1M8
+
+Cell: [+1-514-8028228](tel:(514)%20802-8228)
+
+e-mail:[mrina...@stx.oxon.org]()
+
+  
+
+  
+

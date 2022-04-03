@@ -1,0 +1,265 @@
++++
+title = "000 gira...@juno.com"
+
++++
+[[gira...@juno.com	2011-07-14, 23:17:16 [Source](https://groups.google.com/g/bvparishat/c/CzZyLsk2mrU)]]
+
+
+
+July 13, 2011
+
+
+
+Dear Dr. N.Rajaram, Your thesis of Manu moving from Kerala to Sarasvati valley is certainly interesting. However which Many are you talking about? Is this Manu from the story of Matsyaavataar or of Many-smriti? Thanks. N.R.Joshi.  
+  
+---------- Original Message ----------  
+From: navaratna rajaramnavaratna \<[rajaramn...@gmail.com]()\>  
+To: [bvpar...@googlegroups.com](), bharatiyaexperts \<[bharatiyae...@yahoogroups.com]()\>, Pvshastri \<[pvsh...@aol.com]()\>, "Puri, Madan L." \<[pu...@indiana.edu]()\>, brijmohan \<[brij...@bilt.com]()\>, sreenath sastry \<[sreenat...@yahoo.co.in]()\>, Shree Vinekar \<[shreev...@yahoo.com]()\>, [dev...@aol.com]()  
+Cc: Bal R Singh \<[bsi...@umassd.edu]()\>, "Ashish Patel (ANMOL UK LTD)" \<[ashis...@gmail.com]()\>, indiamahesh \<[India...@gmail.com]()\>, [T...@the-week.com](), Pandit Ram samoojh \<[swami...@gmail.com]()\>, utpal kumar \<[utpal....@gmail.com]()\>, G L Bhan \<[gird...@bhan.org.uk]()\>, Giri Bharathan \<[gbhar...@yahoo.com]()\>,
+Rosalee Wolfe \<[rjw...@gmail.com]()\>, Hema Mahase \<[hbma...@gmail.com]()\>, [hemant...@gmail.com](), Nagaraj V \<[vnagar...@gmail.com]()\>, "Dr. Madhukar Ambekar" \<[drmna...@yahoo.co.uk]()\>, Srividya Ramanathan \<[imar...@yahoo.com]()\>, [nr...@vsnl.com]()  
+Subject: Re: {भारतीयविद्वत्परिषत्} 8000-year-old advanced civilisation in Konkan Coast?  
+Date: Tue, 12 Jul 2011 09:27:10 -0400  
+  
+
+*July 12, 2011*
+
+**
+
+This predates the Indus Valley (or Harappan) civilization by several thousand years.
+
+
+
+David Frawley and I have always held that Vedic culture spread from the coastal regions to the interior and north. Manu moved from Kerala to the Sarasvati valley which became established in the north. (See *Hidden Horizons* by Frawley and Rajaram.)
+
+
+
+This also accounts for the strong maritime symbolism in the Vedas and the Puranas. So we are not in the least surprised by the supposedly 'new' findings-- in fact we anticipated them in several of our publications.
+
+
+
+N.S. Rajaram
+
+
+
+  
+  
+
+On Tue, Jul 12, 2011 at 7:53 AM, S. Kalyanaraman \<[kaly...@gmail.com]()\> wrote:  
+
+> <http://bharatkalyan97.blogspot.com/2011/07/photos-8000-year-old-advanced.html> >
+> 
+> > 
+> > 
+> > ## TUESDAY, JULY 12, 2011 >
+> 
+> > 
+> > 
+> > ### Photos: 8000-year-old advanced civilisation in Konkan Coast? >
+> 
+> > 
+> > 
+> > [Photos: 8000-year-old advanced civilisation in Konkan Coast? - > DNA](http://www.dnaindia.com/mumbai/slideshow_photos-8000-year-old-advanced-civilisation-in-konkan-coast_1547920#top)  
+>   
+>   
+> Published: Thursday, May 26, 2011 on 21:13 IST \| Updated: Thursday, > May 26, 2011 on 21:21 IST  
+>   
+> > 
+> > 
+> >   
+> Did the Konkan coast from Shrivardhan in Raigad to Vengurla in > Sindhudurga host a human habitat around 8000 years ago? Did that > population have well-developed engineering skills? Was there a unique > Konkan culture in existence in 6000BC?  
+>   
+> A new archaeological discovery, below sea level along the Konkan > coast, could give answers to these questions. And explorers say the > answer could well be a big ‘Yes!’  
+>   
+> > 
+> > 
+> >   
+>   
+> Researchers have found a wall-like structure that is 24 kilometres > long, 2.7 metres tall, and around 2.5 metres wide. The structure shows > uniformity in its construction.  
+>   
+> “The structure is not continuous throughout the 225 kilometres from > Shrivardhan to Raigad, but it is uniform,” said Dr Ashok Marathe, > professor, department of archaeology, Postgraduate and Research > Institute, Deccan College, Pune.  
+>   
+> “It has been found three metres below the present sea level. It has > been constructed on the ancient sand beach, which was taken as the > base for the construction. Considering the uniformity of the > structure, it was obvious that the structure is man-made and not > natural.”  
+>   
+> > 
+> > 
+> > The joint expedition carried by Deccan College and the central > government’s department of science and technology, was in progress > from 2005.  
+>   
+> “We were actually studying the impacts of tsunamis and earthquakes on > the western coast when we first found this structure in Valneshwar,” > said Marathe. “Then we started talking with the locals and fisherfolks > and we got news about more such structures below water.”  
+>   
+> > 
+> > 
+> >   
+> Marathe added that, the uniformity also shows that the people who > built it belong to the same culture from Shrivardhan to Vengurla.  
+>   
+> However, deciding the age of the structure was done on the basis of > sea level mapping.  
+> > 
+> > 
+> > Bottom of the wall  
+>   
+> “There have been extensive studies about the sea water coming inside > the land,” said Marathe. “The wall’s base, that is ancient sand, is > about six metres below the present sea level. Based on the > calculations, experts from the National Institute of Oceanography > found the age of the wall as around 6000 BC.”  
+>   
+> According to him, the sea was away from its present coastline in 6000 > BC and this wall could have been an effort to prevent the sea water > from coming inside the human habitat.  
+> > 
+> > 
+> >   
+> Middle of the wall  
+>   
+> The discovery has raised a number of questions.  
+>   
+> How were these huge stones of Laterite and Deccan Trap variety > transported to the coast?  
+>   
+> What exactly was the purpose behind building the wall?  
+>   
+> If the date of the walls is true then is it from around the same time > as the Indus Valley Civilisation?  
+>   
+> Why has there been no mention of this civilisation till now?  
+>   
+> Marathe, who will retire in July 2011, has asked more people to come > forward to take his work ahead and to try to find answer to these > questions.  
+> > 
+> > 
+> >   
+> Top of the wall  
+>   
+> In the wake of a number of power projects coming on the Konkan coast > and the growing discontent about the projects, this discovery could > prove vital.  
+>   
+> Marathe, though does not have much hope from the government mentioned > that this, if studied properly could be a major chapter of human > being’s history.  
+>   
+> “It is now up to the government how they treat my finding,” he > said.  
+>   
+> <http://www.dnaindia.com/mumbai/slideshow_photos-8000-year-old-advanced-civilisation-in-konkan-coast_1547920-7#top> >
+> 
+> > 
+> > 
+> > 
+> > 
+> > 
+> > ### A civilisation as old as Indus valley? >
+> 
+> > DNA / DNA Correspondent / Friday, May 27, 2011 1:28 IST >
+> 
+> > 
+> > Did the coastline of the Konkan, from Shrivardhan in Raigad to > Vengurla in Sindhudurg, have human habitation around 8,000 years ago? > Did that population have well-developed engineering skills? Was there > a unique Konkan culture in existence in 6,000BC? The latest discovery > in the field of archaeology, below the sea waters of Konkan coast, > could answer these questions with a big resounding‘Yes!’ >
+> In what could turn out to be a major discovery,researchers have found > a wall-like structure, which is 24km long, 2.7m in height, and around > 2.5m in width. The structure shows uniformity in construction. “The > structure is not continuous from Shrivardhan to Raigad, but it is > uniform. It has been found 3m below the present sea level. Considering > the uniformity of the structure, it is obvious that the structure is > man-made,” said Dr Ashok Marathe, department of archaeology, Deccan > College Postgraduate and Research Institute, Pune. >
+> This joint expedition carried out by Deccan College, Pune and > Department of Science and Technology, Central Government, has been in > progress since 2005. “We were actually studying the impacts of tsunami > and earthquake on western coast when we first found this structure in > Valneshwar,” said Marathe. >
+> However, the age of the structure was decided on the basis of sea > level mapping. “There have been exhaustive studies about the sea water > coming inside the land. Based on the calculations, experts from the > National Institute of Oceanography (NIO) pegged the age of the wall at > around 6,000 BC,” Marathe informed. >
+> The discovery has raised a number of questions, such as how these huge > stones were brought to the shore? What was the purpose behind building > this wall? If the date of the wall is accurate, then is it the same > age as the Indus civilisation? Why have none of the researchers till > date, found or made any mention of this civilisation? Marathe, who > will be retiring in July 2011, has asked more people to try to find > answers to these questions. >
+> In the wake of power projects coming up on Konkan’s coastline and the > growing discontent, this discovery could prove vital. Marathe, though, > displays little faith in the government. >
+> 
+> > 
+> > **URL of the > article:**<http://www.dnaindia.com/mumbai/report_a-civilisation-as-old-as-indus-valley_1547987-all> >
+> 
+> > 
+> > 
+> > 8000 years old Kokan Civilisation ??? >
+> 
+> > 
+> > Did the Kokan coast from Shrivardhan in Raigad to Vengurla in > Sindhudurg host a human habitat around 8000 years ago? >
+> 
+> > 
+> > Did that population have well-developed engineering skills? >
+> 
+> > 
+> > Was there a unique Kokan culture in existence in 6000 BC on the lines > of the Indus Valley Civilisation? >
+> 
+> > 
+> > These questions are being raised by researchers who discovered a > wall-like structure along the Kokan coast stretching from Raigad to > Sindhudurg. >
+> 
+> > 
+> > Researchers have found a wall-like structure that is 24 kilometres > long, 2.7 metres tall, and around 2.5 metres wide. The structure shows > uniformity in its construction. >
+> 
+> > 
+> > “The structure is not continuous throughout the 225 kilometres of sea > bed from Shrivardhan to Sindhudurg, but it is uniform in structure,” > said Dr Ashok Marathe, Professor, Department of Archaeology, > Postgraduate and Research Institute, Deccan College, Pune – the man > leading the research team. >
+> 
+> > 
+> > The joint expedition carried by Deccan College and the central > government’s department of science and technology, was in progress > since 2005. >
+> 
+> > 
+> > “We were actually studying the impacts of tsunamis and earthquakes on > the western coast when we first found this structure in Valneshwar in > Guhagar Taluka in Ratnagiri District,” said Marathe. “Then we started > talking with the locals and fisher-folks and we got news about more > such structures below water elsewhere too.” >
+> 
+> > 
+> > “It has been found three metres below the present sea level. It has > been constructed on the ancient sand beach, which was taken as the > base for the construction. Considering the uniformity of the > structure, it was obvious that the structure is man-made and not > natural.” >
+> 
+> > 
+> > Marathe added that, the uniformity also shows that the people who > built it belong to the same culture, right from Shrivardhan to > Vengurla.
+> > 
+> > 
+> > However, deciding the age of the structure was done on the basis of > sea level mapping. >
+> 
+> > 
+> > “There have been extensive studies about the sea water level > increasing and coming inside the land,” said Marathe. “The wall’s > base, that is ancient sand, is about six metres below the present sea > level. Based on the calculations, experts from the National Institute > of Oceanography found the age of the wall to be around 6000 BC.” >
+> 
+> > 
+> > According to him, the sea was away from its present coastline in 6000 > BC and this wall could have been an effort to prevent the sea water > from coming inside the human habitat. >
+> 
+> > 
+> > The discovery has raised a number of questions. >
+> 
+> > 
+> > How were these huge stones of Laterite and Deccan Trap variety > transported to the coast? >
+> 
+> > 
+> > What exactly was the purpose behind building the wall? >
+> 
+> > 
+> > If the date of the walls is true then is it from around the same time > as the Indus Valley Civilisation? >
+> 
+> > 
+> > Why has there been no mention of this civilisation till now? And many > others… >
+> 
+> > 
+> > In the wake of a number of power projects coming on the Kokan coast > and the growing discontent about the projects, this discovery could > prove vital. >
+> 
+> > 
+> > Marathe added that, if studied properly this could be a major chapter > of human history, but does not have much hope from the government. >
+> 
+> > 
+> > “It is now up to the government how they treat my finding,” he said >
+> 
+> > 
+> > Marathe, who will retire in July 2011, has asked more people to come > forward to take his work ahead and try to find answers to these > questions. >
+> 
+> > 
+> > <http://www.kokanworld.com/details.aspx?nid=332> >
+> 
+> > 
+> > 
+> >   
+> > 
+> > 
+> > Kalyanaraman >
+> 
+> > 
+> >   
+> > 
+> > <http://tinyurl.com/3mrkhea> (Author: Rastram) >
+> 
+> > <http://bharatkalyan97.blogspot.com/> >
+> 
+> > <https://sites.google.com/site/kalyan97/indus-script-cipher>  
+> <https://sites.google.com/site/indianoceancommunity1/>  
+> <https://sites.google.com/site/bharatasahitya/> >
+> 
+> > 
+> > --  
+> अथ चेत्त्वमिमं धर्म्यं संग्रामं न करिष्यसि।  
+> ततः स्वधर्मं कीर्तिं च हित्वा पापमवाप्स्यसि।।  
+> तस्मादुत्तिष्ठ कौन्तेय युद्धाय कृतनिश्चयः।  
+> निराशीर्निर्ममो भूत्वा युध्यस्व विगतज्वरः।। (भ.गी.)  
+
+
+
+
+
+--  
+अथ चेत्त्वमिमं धर्म्यं संग्रामं न करिष्यसि।  
+ततः स्वधर्मं कीर्तिं च हित्वा पापमवाप्स्यसि।।  
+तस्मादुत्तिष्ठ कौन्तेय युद्धाय कृतनिश्चयः।  
+निराशीर्निर्ममो भूत्वा युध्यस्व विगतज्वरः।। (भ.गी.)
+
+  
+  
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_  
+[**Penny Stock Jumping 3000%**  
+Sign up to the #1 voted penny stock newsletter for free today!  
+](http://thirdpartyoffers.juno.com/TGL3142/4e1f2bdc3c3ba3bf323st04vuc)[AwesomePennyStocks.com](http://thirdpartyoffers.juno.com/TGL3142/4e1f2bdc3c3ba3bf323st04vuc)
+

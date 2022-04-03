@@ -1,0 +1,58 @@
++++
+title = "000 gira...@juno.com"
+
++++
+[[gira...@juno.com	2010-11-03, 06:10:22 [Source](https://groups.google.com/g/bvparishat/c/b1-RWdctQcE)]]
+
+
+
+Nov.2, 2010
+
+Respected Scholars, Namaskar!
+
+
+
+Ancient name of Bactria
+
+
+
+Dear Dr. D. Bhattacarya, Thanks for your information. You are right. I do not believe many conclusions of Prof. Witzel. Now here is my information on Bactria.
+
+
+
+From the book of Savitri Saxena
+
+Page 104. Dr Raychaudhuri places Kurus in Vahlika (Bactria) and not within any territory in India proper. Mahabharata refers to Vahlika PrAtipeya who was the second son of the Kuru king Prateepa. He was paternal uncle of Bhees’ma. Vahlika and Madra were sister provinces. Kuru, Kamboja, Shaka, Vahlika and Madra and Stree Rajya were outside the boundaries of the subcontinent.
+
+At the time of Mahabharat, there was no Pakistan, Afghanistan, Persia, Iran. There were kingdoms including India. Kingdom of Magadha was the most powerful because of Jarasandha.
+
+Please understand that this information does not demote the ancient history of Mahabharata or Bharata. Behind the history of Mahabharata, the history of the whole Eurasia is hidden. Thanks. N. R. Joshi
+
+  
+  
+---------- Original Message ----------  
+From: Dipak Bhattacharya \<[dbhattach...@yahoo.com]()\>  
+To: [bvpar...@googlegroups.com]()  
+Subject: Re: {भारतीयविद्वत्परिषत्} BMAC  
+Date: Mon, 1 Nov 2010 10:02:17 +0530 (IST)  
+  
+
+[TABLE]
+
+
+
+
+
+--  
+अथ चेत्त्वमिमं धर्म्यं संग्रामं न करिष्यसि।  
+ततः स्वधर्मं कीर्तिं च हित्वा पापमवाप्स्यसि।।  
+तस्मादुत्तिष्ठ कौन्तेय युद्धाय कृतनिश्चयः।  
+निराशीर्निर्ममो भूत्वा युध्यस्व विगतज्वरः।। (भ.गी.)
+
+  
+  
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_  
+[**Globe Life Insurance**  
+$1\* Buys $50,000 Life Insurance. Adults or Children. No Medical Exam.  
+](http://thirdpartyoffers.juno.com/TGL3142/4cd0afb237a6d23a9bst06vuc)[CoverageFor1Dollar.com](http://thirdpartyoffers.juno.com/TGL3142/4cd0afb237a6d23a9bst06vuc)
+

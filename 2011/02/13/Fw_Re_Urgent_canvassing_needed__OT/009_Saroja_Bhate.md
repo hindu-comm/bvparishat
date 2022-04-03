@@ -1,0 +1,51 @@
++++
+title = "009 Saroja Bhate"
+
++++
+[[Saroja Bhate	2011-02-15, 12:12:54 [Source](https://groups.google.com/g/bvparishat/c/OTXZV_Faw_E)]]
+
+
+
+I have already started, Gauri. Our students and friends are also doing the needful.
+
+Saoja Bhate
+
+
+
+------------------------------------------------------------------------
+
+**From:** [bvpar...@googlegroups.com]() \[mailto:[bvpar...@googlegroups.com]()\] **On Behalf Of **Gauri Mahulikar  
+**Sent:** Sunday, February 13, 2011 05:59 PM  
+**To:** tarangini khot; malharkulkarni; ambuja salgaonkar; bharatiya vidvat parishat; samir sohoni; vaishnavi kashikar; swarup pandit; sonali shinde; varad laghate; [vinaya...@expressindia.com](); [vinod...@rediffmail.com](); Rajendra Nanavati; Mukund Wadekar; urmi shah; Shrimathi Madiman; kanchan mande; sujata kanitkar; shakuntala gawde; Uma Vaidya; Uma Shankar; preeti shukla; Shubhada Joshi  
+**Subject:** {भारतीयविद्वत्परिषत्} Fw: Re: Urgent canvassing needed
+
+[TABLE]
+
+[TABLE]
+
+[TABLE]
+
+[TABLE]
+
+[TABLE]
+
+[TABLE]
+
+|     | |-----| |     |
+
+
+
+--  
+?? ??????????? ??????? ???????? ? ?????????  
+??? ???????? ??????? ? ?????? ???????????????  
+?????????????? ??????? ??????? ???????????  
+??????????????? ?????? ???????? ??????????? (?.??.)
+
+No virus found in this incoming message.  
+Checked by AVG - [www.avg.com](http://www.avg.com)  
+Version: 8.5.449 / Virus Database: 271.1.1/3440 - Release Date: 02/12/11 19:34:00
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_  
+Unlimited Disk, Data Transfer, PHP/MySQL Domain Hosting  
+<http://www.doteasy.com>
+

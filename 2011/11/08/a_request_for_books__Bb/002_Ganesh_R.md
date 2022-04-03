@@ -1,0 +1,33 @@
++++
+title = "002 Ganesh R"
+
++++
+[[Ganesh R	2011-11-08, 11:32:58 [Source](https://groups.google.com/g/bvparishat/c/Bb97gpcdCCQ)]]
+
+
+
+Thank you sir, it is too less if i say that I am very much beholden to you!  
+  
+
+2011/11/8 Hnbhat B.R. \<[hnbh...@gmail.com]()\>  
+
+
+
+> 
+> > 
+> > 
+> > 
+> > 
+> >   
+> > 
+> >   
+> > --  
+> अथ चेत्त्वमिमं धर्म्यं संग्रामं न करिष्यसि।  
+> ततः स्वधर्मं कीर्तिं च हित्वा पापमवाप्स्यसि।।  
+> तस्मादुत्तिष्ठ कौन्तेय युद्धाय कृतनिश्चयः।  
+> निराशीर्निर्ममो भूत्वा युध्यस्व विगतज्वरः।। (भ.गी.)  
+> > 
+> > 
+
+  
+

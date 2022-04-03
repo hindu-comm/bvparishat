@@ -1,0 +1,47 @@
++++
+title = "000 Veeranarayana Pandurangi"
+
++++
+[[Veeranarayana Pandurangi	2012-02-12, 15:47:25 [Source](https://groups.google.com/g/bvparishat/c/Ab_EZAqCwI0)]]
+
+
+
+  
+
+Dear colleagues,
+
+
+
+Please find herewith attached the Accession List for Indology (Oct - Dec.2011)and the recent arrivals of Indology journals (Oct 2011 - Jan 2012) of the IFP library.
+
+
+
+With all best wishes,
+
+Library, IFP
+
+``` -- 
+Narenthiran. R Librarian French Institute of Pondicherry 11, Saint Louis Street P.B.33, Pondicherry 605001 Phone # 91-413-2334168 Extn 126/139 Mobile: 9442934327 Web: www.ifpindia.org Email : narent...@ifpindia.org ```
+
+  
+  
+
+  
+
+--  
+
+Veeranarayana N.K. Pandurangi  
+Head, Dept of Darshanas,  
+Yoganandacharya Bhavan,  
+Jagadguru Ramanandacharya Rajasthan Samskrita University, Madau, post Bhankrota, Jaipur, 302026.  
+  
+अथ चेत्त्वमिमं धर्म्यं संग्रामं न करिष्यसि।
+
+ततः स्वधर्मं कीर्तिं च हित्वा पापमवाप्स्यसि।।
+
+तस्मादुत्तिष्ठ कौन्तेय युद्धाय कृतनिश्चयः।
+
+निराशीर्निर्ममो भूत्वा युध्यस्व विगतज्वरः।। (भ.गी.)
+
+  
+

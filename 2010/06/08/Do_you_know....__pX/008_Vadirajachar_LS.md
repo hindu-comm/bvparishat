@@ -1,0 +1,44 @@
++++
+title = "008 Vadirajachar LS"
+
++++
+[[Vadirajachar LS	2010-06-08, 21:42:38 [Source](https://groups.google.com/g/bvparishat/c/pXMVPgYvCuM)]]
+
+
+
+Nice message.............  
+  
+
+2010/6/8 Dr. S. Ramakrishna Sharma \<[d.ramak...@gmail.com]()\>  
+
+> हरि: ॐ  
+> नमस्ते।
+
+
+
+> 
+> > Aangirasa/Dr.S.Ramakrishna Sharma. > M.A.,Ph.D.(Eng.Lit.),Ph.D.(Sanskrit.).  
+> > --  
+> > 
+
+> 
+> > 
+> > 
+> > 
+> > अथ चेत्त्वमिमं धर्म्यं संग्रामं न करिष्यसि।  
+> ततः स्वधर्मं कीर्तिं च हित्वा पापमवाप्स्यसि।।  
+> तस्मादुत्तिष्ठ कौन्तेय युद्धाय कृतनिश्चयः।  
+> निराशीर्निर्ममो भूत्वा युध्यस्व विगतज्वरः।। (भ.गी.)  
+> > 
+> > 
+
+  
+  
+  
+--  
+Vadirajacharya L.S  
+Alankara Vidwan, MA(Sanskrit),Phd  
+Lecturer in Sri Jayateertha Vidyapeetha, Uttaradi Math, Bangalore  
+Research Scholar  
+Dvaita Vedanta Studies and Research Foundation  
+

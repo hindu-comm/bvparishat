@@ -1,0 +1,29 @@
++++
+title = "001 S P Narang"
+
++++
+[[S P Narang	2011-07-27, 06:50:57 [Source](https://groups.google.com/g/bvparishat/c/P-d8PUjZjBU)]]
+
+
+
+Thanks for the information. Let Yajna protect us all. Regards, spnarang
+
+--- On Wed, 7/27/11, Dr.Vamshi Krishna Ghanapathi \<[vkghan...@gmail.com]()\> wrote:
+
+
+
+\> --  
+\> अथ चेत्त्वमिमं  
+\> धर्म्यं संग्रामं न  
+\> करिष्यसि।  
+\> ततः स्वधर्मं कीर्तिं  
+\> च हित्वा  
+\> पापमवाप्स्यसि।।  
+\> तस्मादुत्तिष्ठ  
+\> कौन्तेय युद्धाय  
+\> कृतनिश्चयः।  
+\> निराशीर्निर्ममो  
+\> भूत्वा युध्यस्व  
+\> विगतज्वरः।। (भ.गी.)  
+\>  
+

@@ -1,0 +1,40 @@
++++
+title = "000 BVP Management"
+
++++
+[[BVP Management	2010-02-27, 13:36:37 [Source](https://groups.google.com/g/bvparishat/c/prLUea2h4ws)]]
+
+
+
+---------- Forwarded message ----------  
+From: Oliver Hellwig \<[hell...@gmx.de]()\>  
+Date: 12 February 2010 15:40  
+Subject: Digital Sanskrit corpus and dictionary  
+To: [INDO...@liverpool.ac.uk]()
+
+  
+Dear colleagues,
+
+I would like to announce that a digital corpus of lemmatized Sanskrit texts  
+is now available at
+
+<http://kjc-fs-cluster.kjc.uni-heidelberg.de/dcs/>
+
+The corpus contains more than 2.500.000 manually annotated entries. It  
+offers the possibilities to search for lemmata and collocations and presents  
+lists of referenced finite and infinite forms of each verbal lemma contained  
+in the lexical database. In addition, the corpus makes it possible to  
+examine the distribution of lexical units over the time using basic  
+statistical measures.
+
+  
+Best,
+
+Oliver Hellwig
+
+  
+PD Dr. Oliver Hellwig  
+Südasien-Institut, Universität Heidelberg  
+Im Neuenheimer Feld 330  
+69120 Heidelberg  
+

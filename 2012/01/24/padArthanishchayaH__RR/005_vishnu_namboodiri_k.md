@@ -1,0 +1,62 @@
++++
+title = "005 vishnu namboodiri k"
+
++++
+[[vishnu namboodiri k	2012-02-06, 23:52:32 [Source](https://groups.google.com/g/bvparishat/c/RRH8ncV1i-o)]]
+
+
+
+HNBhat's first answer is perfect.The next cannot be accepted,because  
+the root in svadigana is akarmaka, the meaning of which is  
+pragalbhathe(Form is dhrshnothi).How is it that an akarmaka-root do  
+derive the form in karma-meaning. Dharshathi or dharshayathi is the  
+form of the same root but sakarmaka in churadigana.And its meaning is  
+"to abduct, to hold somebody against their will".First answer is  
+perfect by the grace of "BAHULM".The word Durdhashah means one who  
+could be abducted hardly.
+
+On 2/5/12, Hnbhat B.R. \<[hnbh...@gmail.com]()\> wrote:  
+\> 2012/1/31 Hnbhat B.R. \<[hnbh...@gmail.com]()\>  
+\>  
+\>\> ईषद्दुःसुषु कृच्छ्राकृच्छ्रार्थेषु खल्॥ ३।३।१२६।  
+\>\>  
+\>\> इति पाणिनिना अनुशिष्टोऽयं प्रयोगः, कृच्छ्रेण अकृच्छ्रेण वा क्रियते  
+\>\> इत्यर्थे खल्-प्रत्ययविधानेन। उपसर्गस्तु धात्वर्थस्य वाचका वा द्योतका  
+\>\> वा इत्यन्यो विषयः। अत एव कृच्छ्रेण - दुःखेन इति दुरो विशेषणम्, दुःखेन  
+\>\> धृष्यते इति दुर्धर्षः, इतिव् विशेषणम्। अकृच्छ्रार्थे, सुधर्षः , सुदमो  
+\>\> दमघोषजः इत्यादयः प्रयोगः। ईषज्जयः, सुजयः इत्यादयश्च।  
+\>\>  
+\>\>  
+\>\>  
+\>  
+\> क्षमा याचे, अविचारितप्रतुत्तरदानाय।  
+\>  
+\> यद्यपि, दुष्करः, दुर्जयः इत्यादौ पूर्वोक्तविधानेन खल् प्रत्ययः सुसाधः, अत्र  
+\> दुर्धर्षशब्दे स दुःसाध एवेति विस्मृत्य पूर्वमुत्तरं दत्तम्। तत्र -  
+\>  
+\> " भाषायां शासियुधिदृशिधृषिमृषिभ्यो युज्वक्तव्यः। दुःशासनः। दुर्योधनः।  
+\> दुर्दर्शनः। दुर्धर्षणः। दुर्मर्षणः।"  
+\>  
+\> इति वार्तिकविहितः युच्प्रत्ययः खल्प्रत्ययापवाद इति शास्त्रप्रक्रिया।  
+\> दुर्धर्षः इत्यादयः प्रयोगाः, खलर्थं विना अच्प्रत्ययान्तेन निर्वाह्याः,  
+\> आर्षप्रयोगा इति वा समाधेयाः। अच्प्रत्ययस्तु कर्तर्येव विहित इत्यपि  
+\> मन्तव्यम् - तेन दुःखेन प्रधर्षतीति सोपसर्गात् कर्त्रर्थे दुःखं (परस्य) यथा  
+\> स्यात् तथा धर्षति - प्रगल्भते इति अर्थविवरणं संगच्छेत, ईषद्दुःसुषु  
+\> कृच्छ्राकृच्छ्रार्थयोरेव खल् विधानात् तस्य भावकर्मणोरेव विधानाच्च।  
+\>  
+\> एवमेव पूर्वमन्यैः प्रदर्शितेषूदाहरणेषु मन्तव्यम्।  
+\>  
+\> --  
+
+\> \*Dr. Hari Narayana Bhat B.R. M.A., Ph.D.,  
+\> \*\*Research Scholar,  
+\> \*
+
+  
+\> Ecole française d'Extrême-OrientCentre de Pondichéry  
+\> 16 & 19, Rue Dumas  
+\> Pondichéry - 605 001  
+\>  
+
+
+
