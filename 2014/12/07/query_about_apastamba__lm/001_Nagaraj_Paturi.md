@@ -6,7 +6,8 @@ title = "001 Nagaraj Paturi"
 
 
 
-In the book Apastamba :Dharma and Grihya Sutras Translated by various scholars Edited by Rama Ramanuja Achari Srimatham.com, under the title
+In the book Apastamba :Dharma and Grihya Sutras  
+Translated by various scholars Edited by Rama Ramanuja Achari Srimatham.com, under the title
 
 
 
